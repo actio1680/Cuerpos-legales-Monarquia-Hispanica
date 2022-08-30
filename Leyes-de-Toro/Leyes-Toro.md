@@ -50,6 +50,10 @@ Porque nuestra
 
 
 
-Arribas, M. (s/f). Trasncripción de las Leyes de Toro. Según el original que se conserva en el Archo de la Real Canchillería de Valladolid. [Enlace](https://faculty.georgetown.edu/sallesrv/courses/SPAN-459/span459/pdfs/leyes_toro/leyes_96.pdf)  
+Arribas, M. (s/f). Transcripción de las Leyes de Toro. Según el original que se conserva en el Archo de la Real Canchillería de Valladolid. [Enlace](https://faculty.georgetown.edu/sallesrv/courses/SPAN-459/span459/pdfs/leyes_toro/leyes_96.pdf)  
 
-Comentario a las Leyes de Toro . Tomo I. [Enlace](https://books.google.com.pe/books?id=_sYWAAAAYAAJ&pg=PR3&dq=Pacheco,+Joaqu%C3%ADn+Francisco,+leyes+toro&hl=en&sa=X&ved=2ahUKEwic3cDnhe35AhVnFrkGHcCgCT4Q6AF6BAgFEAI)
+Martínez, M (s/f). Leyes de Toro. [Enlace](http://www.artic.ua.es/biblioteca/u85/documentos/1840.pdf)
+
+Pacheco, J. (1862). *Comentario histórico, crítico y jurídico á las leyes de Toro*. Tomo I. Imprenta y Fundición de Manuel Tello. [Enlace](https://archive.org/details/BRes0029541)
+
+Pacheco, J. F. (1876). *Comentario histórico, crítico y jurídico á las leyes de Toro*. Tomo II. Imprenta y Fundición de Manuel Tello. [Enlace](https://archive.org/details/BRes0029542)
