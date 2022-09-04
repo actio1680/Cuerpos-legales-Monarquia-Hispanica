@@ -1,4 +1,4 @@
-## LEYES DE TORO 
+## LEYES DE TORO[^1]
 
 ##### folio 1 r.
 
@@ -29,11 +29,15 @@ fueros sean guardados en aque//llas cosas que se usaron, salvo en aquello que no
 que por ellas no se pudiere determi//nar, mandamos que se que se guarden las leyes de los fueros, ansi 
 
 
+(continúa la transcripción)
 
 
 
+[Subir](#Top)
 
-Arribas, M. (s/f). Transcripción de las Leyes de Toro. Según el original que se conserva en el Archo de la Real Canchillería de Valladolid. [Enlace](https://faculty.georgetown.edu/sallesrv/courses/SPAN-459/span459/pdfs/leyes_toro/leyes_96.pdf)  
+---
+
+[^1]: Arribas, M. (s/f). Transcripción de las Leyes de Toro. Según el original que se conserva en el Archivo de la Real Canchillería de Valladolid. [Enlace](https://faculty.georgetown.edu/sallesrv/courses/SPAN-459/span459/pdfs/leyes_toro/leyes_96.pdf)  
 
 Martínez, M (s/f). Leyes de Toro. [Enlace](http://www.artic.ua.es/biblioteca/u85/documentos/1840.pdf)
 
