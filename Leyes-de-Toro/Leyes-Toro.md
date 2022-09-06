@@ -39,8 +39,3 @@ que por ellas no se pudiere determi//nar, mandamos que se que se guarden las ley
 
 [^1]: Arribas, M. (s/f). Transcripción de las Leyes de Toro. Según el original que se conserva en el Archivo de la Real Canchillería de Valladolid. [Enlace](https://faculty.georgetown.edu/sallesrv/courses/SPAN-459/span459/pdfs/leyes_toro/leyes_96.pdf)  
 
-Martínez, M (s/f). Leyes de Toro. [Enlace](http://www.artic.ua.es/biblioteca/u85/documentos/1840.pdf)
-
-Pacheco, J. (1862). *Comentario histórico, crítico y jurídico á las leyes de Toro*. Tomo I. Imprenta y Fundición de Manuel Tello. [Enlace](https://archive.org/details/BRes0029541)
-
-Pacheco, J. F. (1876). *Comentario histórico, crítico y jurídico á las leyes de Toro*. Tomo II. Imprenta y Fundición de Manuel Tello. [Enlace](https://archive.org/details/BRes0029542)
