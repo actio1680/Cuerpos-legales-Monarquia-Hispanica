@@ -1,12 +1,11 @@
-### 
-### CONTENIDO
-#### LIBRO PRIMERO
-#### LIBRO SEGUNDO
-#### LIBRO TERCERO
+## RECOPILACIÓN DE LEYES DE LOS REYNOS DE LAS INDIAS 1680
 
----
-### LIBRO PRIMERO. 
-### TÍTULO PRIMERO. De la Santa Fe Católica
+[> Leer presentación](https://actio1680.github.io/paginas/recopilacion1680)
+
+### DOCUMENTO DIGITAL[^1]
+
+#### LIBRO PRIMERO. 
+#### TÍTULO PRIMERO. De la Santa Fe Católica
 
 ##### LEY I.
 - Exhortacion á la Santa Fe Católica, y como la debe creer todo Fiel Christiano.
@@ -67,8 +66,8 @@
 
 
 ---
-### LIBRO SEXTO. 
-### Título VI. De los protectores de indios
+#### LIBRO SEXTO. 
+#### Título VI. De los protectores de indios
 
 ##### LEY I. 
 - Que sin embargo de la reformación de los protectores, y defensores de indios, los pueda haber
@@ -83,3 +82,10 @@
 - Que sean castigados los Ministros, que llevaren a los indios 
 
 ##### LEY V. 
+
+(Continua transcripción)
+
+---
+
+[^1]: Agencia Estatal Bolétin Oficial del Estado. (1998). Recopilación de leyes de los reynos de las indias [Enlace](https://www.boe.es/biblioteca_juridica/publicacion.php?id=PUB-LH-1998-62)
+
