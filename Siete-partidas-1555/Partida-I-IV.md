@@ -341,4 +341,4 @@
 
 ---
 
-[^1]: Agencia Estatal Bolétin Oficial del Estado. (1998).       [Enlace](https://www.boe.es/biblioteca_juridica/publicacion.php?id=PUB-LH-1998-62)
+[^1]: Agencia Estatal Bolétin Oficial del Estado. (2011). Las Siete Partidas. [Enlace](https://www.boe.es/biblioteca_juridica/publicacion.php?id=PUB-LH-2011-60)
