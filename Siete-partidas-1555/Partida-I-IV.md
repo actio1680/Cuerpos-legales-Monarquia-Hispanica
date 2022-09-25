@@ -5,7 +5,7 @@
 ### DOCUMENTO DIGITAL[^1]
 
 #### PRIMERA PARTIDA
-#### TÍTULO I. Que fabla de las leyes, e por quantas razones es este libro partido por titulos, e en que manera
+#### TITULO I. Que fabla de las leyes, e por quantas razones es este libro partido por titulos, e en que manera
 
 ##### LEY I.
 - Que leyes son estas
@@ -71,7 +71,7 @@
 - Quales pueden ser escusados por no saber las leyes 
 
 
-#### TÍTULO II. Del Vso, e de la costumbre, e del fuero
+#### TITULO II. Del Vso, e de la costumbre, e del fuero
 ##### LEY I. 
 - Que cosa es vso 
 
@@ -100,7 +100,7 @@
 - Como se puede desatar el Fuero 
 
 
-#### TÍTULO III. De la santa Trinidad, e de la fe catholica.
+#### TITULO III. De la santa Trinidad, e de la fe catholica.
 ##### LEY I. 
 - Que cosa son articulos en si? 
 
@@ -111,9 +111,7 @@
 - Como deuen ser guardados los artículos 
 
 
-#### TÍTULO IIII. De los siete sacramentos de la santa Eglesia. 
-
-
+#### TITULO IIII. De los siete sacramentos de la santa Eglesia. 
 ##### LEY I. 
 - Por que son siete sacramentos e non mas nin menos 
 
@@ -333,7 +331,7 @@
 ##### LEY LXXIII. 
 - Que pena merescen los que non creen, o niegan los sacramentos de santa eglesia
 
-##### TÍTULO V. De los perlados de santa Eglesia, que han de mostrar la fe, e dar los sacramentos
+##### TITULO V. De los perlados de santa Eglesia, que han de mostrar la fe, e dar los sacramentos
 
 
 
