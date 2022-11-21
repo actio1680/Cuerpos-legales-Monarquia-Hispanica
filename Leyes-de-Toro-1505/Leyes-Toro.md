@@ -30,7 +30,57 @@ fueros sean guardados en aque//llas cosas que se usaron, salvo en aquello que no
 
 ##### folio 3r.
 
-que por ellas no se pudiere determi//nar, mandamos que se que se guarden las leyes de los fueros, ansi 
+que por ellas no se pudiere determi//nar, mandamos que se guarden las leyes de los fueros, ansi del fuero de las leyes, como las de los fueros munici- pales, que cada ciudad, o villa, o lugar, tuviere, en lo que son o fueren usadas e guardadas en los dichos lugares, e no fueren contrarias a las dichas leyes de ordenamientos e prematicas, assi en lo que **[5]** por ellas está determinado como en lo que determi/ naremos adelante por algunas leyes de ordenamien- tos e prematicas, e los reyes que de nos vinieren. Ca por ellas, es nuestra intencion e voluntad que se determinen los dichos pleytos e causas, no en- bargante los dichos fueros, e uso e guarda dellos; e lo que, por las dichas leyes de ordenamientos e prematicas e fueros no se pudiere determinar, mandamos que en tal caso se recurra a las leyes **[10]** de las Siete Partidas fechas por el señor rey don Al/fonso nuestro progenitor, por las quales, en defeto de los dichos ordenamientos, prematicas, e fueros, manda- mos que se determinen los pleytos e causas assi ceviles como criminales de qualquier calidad o can- tidad que sean, guardando lo que por ellas fuere de- terminado como en ellas se contiene, aunque no sean usadas ni guardadas, y no por otras algunas. E mandamos que quando quier que alguna dubda **[15]** ocurriere, en la interpetracion y declaracion de las dichas leyes de ordenamientos, e prematicas, e fueros, o de las Partidas, que en tal caso recurran a nos, e a los reyes que de nos vinieren, para la inter- petracion e declaracion dellas; porque por nos vistas las dichas dubdas, declararemos e interpetraremos las dichas leyes como conviene a servicio de Dios nuestro señor, e al bien de nuestros subditos e naturales, e a la buena administracion de nuestra **[20]** iusticia. E por quanto nos ovimos fecho en la villa de Madrid, el año que passó de noventa e nueve, ciertas leyes e ordenanças, las quales manda- mos que se guardassen en la ordinacion e algunas, en la decision de los pleytos e causas, en el nuestro Consejo e en las nuestras Audiencias, e entre ellas fezimos una ley e ordenança que fabla cerca de las opiniones de Bartolo, e Baldo, e de Juan Andres, e el Abad, qual dellas se deve seguir en dubda, a falta **[25]** de ley, e porque agora / somos informados, que lo que fezimos por estorvar la prolixidad e muchedumbre de las opiniones de los doctores, ha traydo mayor daño e inconveniente, por ende, por la pre- sente revocamos, cassamos, e anulamos, en quanto a ésto, todo lo contenido en la dicha ley e ordenança por nos fecha en la dicha villa de Madrid; e mandamos que de aqui adelante no se use della, ni se guarde, ni cumpla, porque nuestra intencion e vo **[30]** luntad es, que cerca de la di/cha ordinacion e determinacion de los pleytos e causas, solamente se faga e guarde lo contenido en la dicha ley del señor rey don Alfonso, e en esta nuestra. 
+
+### LEY 2
+
+Porque nuestra intencion e voluntad es que los letrados en estos nuestros reynos, sean principalmente instrutos e informados de las dichas leyes de nuestros reynos, pues por ellas e no por otras han de juzgar. E a nos es fecha relacion que algunos [35] letrados nos sirven e otros / nos vienen a servir en algunos cargos de iusticia, sin aver passado ni estudiado las dichas leyes e ordenamientos, e pre- maticas, e Partidas, de lo qual resulta que en la decision de los pleytos e causas, algunas vezes no se guardan e platican las dichas leyes como se deven guardar e platicar, lo qual es contra nuestro servicio. E porque nuestra intencion e voluntad es de mandar recoger e emendar los dichos ordenamientos para **[40]** que se ayan de im/premir, e cada uno se pueda aprovechar dellos, por ende por la presente, ordena- mos e mandamos que dentro de un año primero siguiente, e dende en adelante, contado desde la data destas nuestras leyes, todos los letrados que oy son o fueren, assi del nuestro Consejo, o oydores de las nuestras Audiencias, e alcaldes de la nuestra casa e corte e Chancyllerias, o tienen o tuvieren otro qualquier cargo o alministracion de iusticia, ansi en **[45]** lo realengo, co/mo en lo abadengo, como en las ordenes, e behetrias, como en otro qualquier señorio destos nuestros reynos, no puedan usar de los fol. 3 v. dichos cargos de iusticia, ni tenerlos sin que // primeramente ayan passado ordinariamente las dichas leyes de ordenamientos e prematicas e partidas e fuero real. 
+
+### LEY 3
+
+Ordenamos e mandamos que la solennidad de la ley del ordenamiento del señor rey don Alfonso, que dispone quantos testigos son menester en el testa- [5] mento, se entienda e pla/tique en el testamento abierto, que en latin es dicho nuncupativo, agora sea entre los fijos o descendientes legitimos, ora entre herederos estraños; pero en el testamento cerrado, que en latin se dize in escritis, mandamos que intervengan a lo menos siete testigos con un escrivano, los quales ayan de firmar encima de la escritura del dicho testamento, ellos y el testador, si supieren o pudieren firmar, e si no supieren y el testador no [10] pudiere firmar, que los unos firmen por / los otros, de manera que sean ocho firmas e mas el signo del escrivano. E mandamos, que en el testamento del ciego intervengan cinco testigos a lo menos, y en los codecillos intervenga la misma solemnidad que se requiere en el testamento nuncupativo o abierto, conforme a la dicha ley del ordenamiento, los quales dichos testamentos e codecillos si no tovieren la dicha solemnidad de testigos, mandamos que no fagan fee ni prueva, en juyzio ni fuera del. 
+
+### LEY 4
+
+**[15]** / Mandamos quel condenado por delicto a muerte. civil o natural pueda hazer testamento e codecillos, o otra qualquier ultima voluntad, o dar poder a otro que lo faga por él, como si no fuese condenado. El qual condenado y su comissario pucdan disponer de sus bienes, salvo de los que por el tal delicto fueren confiscados, o se ovieren de confiscar, o aplicar a nuestra camara o a otra persona alguna. 
+
+### LEY 5
+
+**[20]** / El fijo o fija que está en poder de su padre, seyendo de edad legitima para hazer testamento. pueda hazer testamento como si estoviesse fuera de su poder. 
+
+### LEY 6
+
+Los ascendientes legitimos por su orden e linea derecha sucedan ex testamento e ab intestato a sus descendientes, y les sean legitimos herederos, como lo son los descendientes a ellos en todos sus bienes de qualquier calidad que sean, en caso que los dichos **[25]** descendien/tes no tengan fijos o descendientes legitimos o que ayan derecho de les heredar, pero bien permitimos, que no enbargante que tengan los dichos ascendientes, que en la tercia parte de sus bienes puedan disponer los dichos descendientes en su vida, o fazer qualquier ultima voluntad por su alma, o en otra cosa qual quisieren; lo qual mandamos que se guarde salvo en las ciudades e villas e logares do segun el fuero de la tierra, se acostumbran **[30]** tornar / los bienes al tronco o la rays a la rays.
+
+### LEY 7
+
+El hermano para heredar ab intestato a su hermano, no pueda concurrir con los padres o ascendientes del difunto. 
+
+### LEY 8
+
+Mandamos que subcedan los sobrinos, con los tios ab intestato, a sus tios, in stirpem y no in capita. 
+
+### LEY 9
+
+**[35]** / Los hijos bastardos o ylegitimos de qualquier calidad que sean, no puedan heredar a sus madres ex testamento ni ab intestato, en caso que tengan sus madres hijo o hijos o descendientes legitimos, pero bien permitimos que les puedan en vida o en muerte mandar fasta la quinta parte de sus bienes, de la qual podrian disponer por su ánima, e no mas ni aliende; y en caso que no tenga la muger hijos o **[40]** descendientes legitimos, aunque tenga / padre of madre o ascendientes legitimos, mandamos quel fijo 
+
+##### folio. 4r.
+
+fijos o descendientes que // toviere, naturales o espurios, por su orden e grado, les sean herederos. legitimos ex testamento y ab intestato, salvo si los tales fijos fueren de dañado e pugnible ayuntamiento de parte de la madre, que en tal caso, mandamos, que no puedan heredar a sus madres ex testamento ni ab intestato. Pero bien permitimos que les puedan **[5]** en vida o en muerte mandar / fasta la quinta parte de sus bienes, e no mas, de la que podian disponer por su ánima, e de la tal parte, despues que la ovieren, puedan disponer en su vida, o al tiempo de su muerte, los dichos hijos ylegitimos como quisieren. Y queremos y mandamos, que entonces se entienda e diga dañado e pugnible ayuntamiento quando la madre, por el tal ayuntamiento, incu- rriere en pena de muerte natural. Salvo si fueren **[10]** los hijos de clerigos, o flayres, o freyles, / o de monjas professas, que en tal caso, aunque por el tal ayun- tamiento no incurra la madre en pena de muerte, mandamos que se guarde lo contenido en la ley que fizo el señor rey don Juan el primero en la ciudad de Soria, que fabla sobre la subcession de los fijos de los clerigos. **[15]** 
+
+### LEY 10
+
+Mandamos, que en caso quel padre o la madre sean obligados a dar alimentos a alguno de sus hijos ylegitimos, en su vida o al tiempo de su muerte, que por virtud de la tal obligacion no le pueda mandar mas de la quinta parte de sus bienes, de la que podia disponer por su ánima, y por causa de los dichos alimentos no sea mas capaz el tal hijo ylegitimo. De la qual parte, despues que la oviere el tal fijo, pueda en su vida o en su muerte hazer lo que quisiere o por bien toviere. Pero si el tal hijo 20 fuere natural, y el padre no tuviere fijos o des/cen- dientes legitimos, mandamos quel padre le pueda mandar iustamente, de sus bienes, todo lo que quisiere, aunque tenga ascendientes legitimos. 
+
+### LEY 11
+
+E porque no se pueda dubdar quales son fijos naturales, ordenamos e mandamos que entonces se digan ser los hijos naturales, quando al tiempo que nascieren o fueren concebidos, sus padres podian casar con sus madres iustamente sin dispensacion, 25 con tanto quel padre lo reconosca por su fijo, puesto que no aya tenido la muger de quien lo ovo en su casa, ni sea una sola. Ca concurriendo en el fijo las calidades suso dichas mandamos que sea fijo natural. 
+
+### LEY 12
+
+Si alguno fuere legitimado por rescrito, o previlegio nuestro, o de los reyes que de nos vinieren, aunque sea legitimado para heredar los bienes de sus padres **[30]** o madres o de sus abuelos, e / despues su padre o madre o abuelos ovieren algun fijo o nieto o des- cendiente legitimo, o de legitimo matrimonio nas. cido o legitimado por subsiguiente matrimonio, el tal legitimado, no pueda subceder con los cales hijos o descendientes legitimos en los bienes de sus padres ni madres ni de sus ascendientes ab intestato ni ex testamento. Salvo si sus padres o madres o avuelos en lo que cupiere, en la quinta parte de sus bienes, **[35]** que podian mandar por su ánima, les quisieren alguna cosa mandar que fasta en la dicha quinta parte, bien permitimos que sean capazes y no mas.
+
+
 
 
 (continúa la transcripción)
