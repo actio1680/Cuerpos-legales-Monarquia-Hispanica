@@ -1,6 +1,6 @@
 ## LEYES DE TORO 1505
 
-[> Leer presentación](https://actio1680.github.io/paginas/leyestoro)
+[> Leer presentación](https://actio1680.github.io/proyecto2/leyestoro.html)
 
 ### DOCUMENTO DIGITAL[^1]
 
