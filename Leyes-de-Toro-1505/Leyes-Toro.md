@@ -104,7 +104,7 @@ fue bautizado, mandamos quel tal fijo sea avido por abortivo, e que no pueda her
 
 Mandamos quel marido y la muger, suelto el matrimonio, aunque casen segunda o tercera vez, o mas, puedan disponer libremente de los bienes multiplicados durante el primera, o segundo, o tercero matrimonio, aunque aya avido hijos de los cales matrimonios o de alguno dellos, durante los quales **[10]** matrimonios, los dichos bienes se multiplicaron; como de los otros sus bienes propios que no oviessen seydo de ganancia, sin ser obligados a reservar a los tales fijos, propiedad ni usofruto de los tales. bienes. 
 
-### LEY**[15]**
+### LEY 15
 
 En todos los casos que las mugeres casando segunda vez son obligadas a reservar a los fijos del primero matrimonio la propiedad de lo que oviere del primero marido, o heredare de los fijos del primero matrimonio, en los mismos casos, el varon que casare **[15]** segunda o tercera vez, sea obligado a reservar la propiedad dello a los fijos del primero matrimonio; de manera, que lo establescido cerca deste caso en las mugeres que casaren segunda vez, aya logar en los varones que passaren a segundo o tercero matrimonio. 
 
