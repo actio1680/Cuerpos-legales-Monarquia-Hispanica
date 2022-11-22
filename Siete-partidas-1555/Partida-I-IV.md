@@ -1,6 +1,6 @@
 ## SIETE PARTIDAS
 
-[> Leer presentación](https://actio1680.github.io/paginas/sietepartidas)
+[> Leer presentación](https://actio1680.github.io/proyecto2/sietepartidas)
 
 ### DOCUMENTO DIGITAL[^1]
 
