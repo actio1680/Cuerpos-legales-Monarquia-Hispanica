@@ -1957,8 +1957,11 @@ Ley VIII.
 - Que derecho han en los captiuos aquellos, que los fian e pagan algo per ellos
 ##### LEY XII.
 - Por quales razones, los que sacan a otros de captiuo, non les deuen demandar lo que pagan por ellos 
-#### TITULO XXX.
-- De los alfaqueques, e de lo que estos han de fazer
+
+#### TITULO XXX. De los alfaqueques, e de lo que estos han de fazer
+
+
+
 ##### LEY I.
 - Que quiere dezir alfaqueques, e que cosas deuen auer estos en si
 ##### LEY II.
@@ -1967,8 +1970,10 @@ Ley VIII.
 - Que cosas deuen guardar los alfaqueques, despues que fueren fechos.
 - E que gualardon deuen auer, quando bien guardaren su oficio.
 - E que pena deuen auer: quando mal lo fizieren 
-#### TITULO XXXI.
-- De los estudios, en que se aprenden los saberes, e de los maestros: e de los escolares
+
+
+#### TITULO XXXI. De los estudios, en que se aprenden los saberes, e de los maestros: e de los escolares
+
 ##### LEY I.
 - Que cosa es estudio, e quantas maneras son del, e por cuyo mandado deue ser fecho
 ##### LEY II.
@@ -1991,10 +1996,6 @@ Ley VIII.
 - Como todos los escolares del estudio, ayan vn mensajero a que llaman bedel, e qual es su oficio
 ##### LEY XI.
 - Como los estudios generales deuen auer estacionarios, que tengan tiendas de libros para exemplarios
-
-
-
-(Continua transcripción)
 
 ---
 
