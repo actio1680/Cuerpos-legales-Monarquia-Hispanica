@@ -2,7 +2,7 @@
 
 [> Leer presentación](https://actio1680.github.io/proyecto2/sietepartidas)
 
-El presente documento digital está basado integramente en la obra [7PartidasDigital](https://7partidas.hypotheses.org/), se ha editado con el fin de cumplir con los objetivos académicos del presente repositorio; y en el respeto al cumplimiento de su licencia legal [Creative Commons Reconocimiento-CompartirIgual 4.0 Internacional](http://creativecommons.org/licenses/by-sa/4.0/). 
+El presente documento digital está basado integramente en la obra [7PartidasDigital](https://7partidas.hypotheses.org/), se ha editado con el fin de cumplir con los objetivos académicos del presente repositorio; y en el respeto al cumplimiento de su licencia legal [Creative Commons Reconocimiento-CompartirIgual 4.0 Internacional](http://creativecommons.org/licenses/by-sa/4.0/). Para una lectura completa de cada ley, ingresar al enlace dispuesto en cada titulo. 
 
 
 ### DOCUMENTO DIGITAL[^1]
@@ -748,7 +748,9 @@ Moysen fue ome a quien amo mucho Dios, e por ende mandole primeramente en la ley
 ##### LEY XX.
 - Por quales cosas deuen reconciliar la Eglesia
 
-#### TITULO XI. De los Preuilejos, e de las franquezas que han las Eglesias, e sus Cementerios
+#### [TITULO XI. De los Preuilejos, e de las franquezas que han las Eglesias, e sus Cementerios](https://7partidas.hypotheses.org/4028)
+
+Preuillejos, e grandes franquezas han las Eglesias de los Emperadores, e de los Reyes, de los otros señores de las tierras e esto fue muy con razon: porque las casas de Dios ouiessen mayor honrra, que las de los omes. E por ende pues en el Titulo ante deste mostramos, como deuen ser fechas: e en que manera deuen refazerlas, quando fuere menester: e otrosi, como las consagran: conuiene dezir en este Titulo de las franquezas, e de los Preuilejos, que han tambien ellas, como sus cementerios. E primeramente mostraremos que quiere dezir Preuillejo. E en quales cosas los han las Eglesias. E a quales omes puede amparar la Eglesia, quando fuyeren a ella: e quales non E que pena deuen auer los que quebrantaren tal preuilejo como este. E sobre todo esto, mostraremos, quales omes manda el derecho de las leyes antiguas sacar de la Eglesia.
 
 ##### LEY I.
 - Que cosa es preuilegio, o en que cosas lo lo [sic] ha la Eglesia
@@ -762,8 +764,9 @@ Moysen fue ome a quien amo mucho Dios, e por ende mandole primeramente en la ley
 ##### LEY V.
 - Quales omes manda el derecho de las leyes antiguas sacar de la Eglesia
 
-#### TITULO XII.
-- De los Monesterios, e de sus Eglesias e de las otras casas de religion
+#### [TITULO XII. De los Monesterios, e de sus Eglesias e de las otras casas de religion](https://7partidas.hypotheses.org/4032)
+
+Arredrandose los omes de las cosas deste mundo, touieron los santos padres, que era carrera, por que mas desembargadamente se podrian allegar a ganar el amor de Dios: e por esso ouo y algunos dellos, que escojeron sus moradas en los montes yermos: e otros cerca de poblado: pero apartadamente tales logares como estos, de qualquier natura que sea, son llamados monesterios o casas de religion: porque estan los omes en buena deuocion, e en cuydado siempre de seruir a Dios, mas que de otra cosa. E pues que en el Titulo ante deste. fablamos de los priuilegios, e de las franquezas que han las Eglesias: conuiene a dezir en este de los otros logares que son de religion. E mostrar a quales logares llaman religiosos. E por cuyo mandado los deuen fazer. E a quien deuen obedescer. E en que cosas. E despues que fueren fechos, si los pueden toller los omes de aquel seruicio, e seruirse dellos, como de otras cosas que fuessen suyas proprias. E los que moraren en algunos logares destos sobredichos, segund qual orden deuen beuir. E que derecho deuen auer los Religiosos en las Eglesias que tienen.
 
 ##### LEY I.
 - Quales logares son llamados Religiosos, e por cuyo mandado deuen ser fechos,
@@ -776,8 +779,9 @@ Moysen fue ome a quien amo mucho Dios, e por ende mandole primeramente en la ley
 ##### LEY V.
 - Que derecho ganan los religiosos en las Eglesias que tienen
 
-#### TITULO XIII.
-- De las Sepulturas
+#### [TITULO XIII. De las Sepulturas](https://7partidas.hypotheses.org/4036)
+
+Erraron algunos omes muy malamente, creyendo que quando muere el cuerpo del ome que muere e [sic] otrosi el alma con el: e que todo se perdia en vno: e este fue entendimiento de desesperados: ca tenian, que non auia mejoria de otra animalia que Dios fiziesse en este mundo nin auia de auer ningun gualardon del bien que fiziesse en este mundo: nin otrosi, pena por el mal: e tales como estos non deuen ser contados por omes: mas por peores que bestias: ca pues que por el entendimiento se aparta el ome de todas las otras animalias: aquel que lo pierde, peor es que bestia. E por esto dixo el Rey Dauid en el Psalterio: que el ome quando es en honrra, e non lo entiende, que se eguala con las bestias, e fazese semejante dellas. E esta honrra es el entendimiento que Dios da al ome, en que lo honrro sobre todas las criaturas. Otros y ouo, que creyan en otra manera, que non mueren las almas mas que se mudauan en otros cuerpos: e estos ouieron muy nescio entendimiento, creyendo que el alma que sale del ome quando muere, que podiesse entrar en otra cosa, e avn demas desto cuydauan menguar el poder de Dios, creyendo que non podia fazer tantas almas, como cuerpos, en que las metiesse: e por ende los entendimientos destos atales, fueron peores que de las bestias. Otros ouo que creyeron de otra manera, que resuscitaria el cuerpo con el alma el dia del juyzio: e que comerian e beuerian despues que resuscitasse: e comoquier que este yerro non fuesse tan grande, como los otros sobredichos: porque creyen la resurreccion. Pero con todo esso erraron mucho, porque lo entendieron corporalmente, e non spiritualmente, segund se deue entender. Otros ouo que creyen la resurreccion espiritualmente, que non comerian ni beuerian despues que resuscitassen: mas erraron en ello, que creyen que los bienes que los omes fazian, o mandauan fazer por los muertos, que non aprouechauan: fueras ende los bienes que fazian, o mandauan fazer en su vida. Mas la fe catholica de nuestro señor Iesu Christo tollo todos estos errores, e quiso que los omes biuiessen en este mundo, faziendo bien, e auiendo cierta esperança, que despues que muriessen, resuscitarian en cuerpos e en almas: e aurian gualardon del bien que fiziessen, conosciendo a Dios, e biuiendo espiritualmente en parayso: e los que mal fiziessen, que yrian a la pena perdurable: e porque los omes se supiessen guardar de non yr a estas penas, dioles ciertas maneras de como biuiessen mostrandoles los articulos de la fe, e dandoles los sacramentos de santa Eglesia, porque pudiessen auer perdon de sus pecados, e saluacion despues de su muerte: e quiso que non tan solamente les touiessen pro para las almas, los bienes que fiziessen en su vida: mas avn los que otros fiziessen por ellos, despues de su muerte. Onde pues que los Christianos ouieron, e han vida ordenada, de como biuan: e creencia verdadera, de como han de resuscitar, e ser saluos, los que fizieren bien: por ende fue ordenado por los padres santos, que ouiessen sepulturas los cuerpos cerca de sus eglesias, e non en los logares yermos e apartados dellas, yaziendo soterrados por los campos, como bestias. E pues que en los titulos ante deste, fablamos de las eglesias e de sus preuillejos: e otrosi, de los logares religiosos: conuiene que se diga en este de los cementerios e de las sepulturas que son allegadas a las eglesias. E mostrar primeramente que cosa es sepultura. E donde tomo este nome E que derecho deue ser guardado en la dar. E por que razon touieron los santos padres por bien, que las sepulturas fuessen cerca de las eglesias. E a quien pertenesce de soterrar los muertos. E quales deuen ser soterrados en las eglesias, e quales non. E que pena deuen auer aquellos que quebrantan las sepulturas, e despojan los finados.
 
 ##### LEY I.
 - Que cosa es sepultura, e donde tomo este nome, e que derecho deue ser guardado en dar la sepultura
@@ -810,8 +814,9 @@ Moysen fue ome a quien amo mucho Dios, e por ende mandole primeramente en la ley
 ##### LEY XV.
 - Que los muertos non deuen ser testados, nin vedados que los non sotierran por deuda que deuan
 
-#### TITULO XIIII.
-- De las cosas de la eglesia que non se deuen enajenar
+#### [TITULO XIIII. De las cosas de la eglesia que non se deuen enajenar](https://7partidas.hypotheses.org/4039)
+
+Acuciosos e entremetidos deuen ser los Emperadores, e los Reyes, e los otros grandes Señores que han de guardar los pueblos, e las tierras, de non dexar enajenar locamente las cosas de su Señorio. E si esto deuen fazer en los bienes de cada vno, quanto mas lo deuen fazer en los de las Eglesias, que son casas de oracion, e logares donde Dios deue ser seruido, e loado. E de los bienes de tales logares como estos, non deue de ser fecha mala barata, porque sean empobrescidos, e ayan de menguar por ende en el seruicio de Dios, que se ha de complir con ellos. Onde pues que en el titulo ante deste, fablamos de los cementerios, e de las Eglesias, e de las sepulturas, conuiene que sea mostrado en este de las otras cosas, que pertenescen a las Eglesias, como se pueden dar, o enajenar, o non. E mostrar primeramente que cosa es enajenamiento. E por quales razones se pueden enajenar las cosas de la Eglesia. E quien lo puede fazer e en que manera puede esto ser fecho. E que pena deuen de auer lo que lo enajenaren maliciosamente. E otrosi los que lo rescibieren.
 
 ##### LEY I.
 - Que cosa es enajenamiento, e por que razones se pueden enajenar las cosas de la Eglesia
@@ -838,8 +843,9 @@ Moysen fue ome a quien amo mucho Dios, e por ende mandole primeramente en la ley
 ##### LEY XII.
 - Que la Eglesia puede demandar sus cosas a los que las enagenan, o a quien las fallare
 
-#### TITULO XV.
-- Del derecho del Patronadgo
+#### [TITULO XV. Del derecho del Patronadgo](https://7partidas.hypotheses.org/4044)
+
+Natura, e razon mueue a los omes para amar las cosas que fazen, e para guardarlas quanto pueden, que se mejoren, e non se menoscaben: assi como el padre que ama a su fijo, e puna de guardarlo, porque biua en buen estado, e el que planta algun arbol que lo riega: porque aya fruto del, de que se sirua. Esso mismo acaesce en todas las cosas que fazen, o crian los omes: ca les son assi como en manera de fijos: e por ende las criaturas que han en si entendimiento de razon, deuen amar e honrrar, e seruir a los que las fizieron, o las criaron, o de quien rescibieron bienfecho. Onde por esta razon el que faze la Eglesia, deue amarla, e honrrarla, como cosa que el fizo a seruicio de Dios: e otrosi, la Eglesia deue amar a el, e honrrarle, e reconoscerle ansi como a padre. E pues que en el Titulo ante de este fablamos, como deuan ser guardadas las cosas de la Eglesia, e que non deuen ser enajenadas, nin malmetidas, sinon por razones ciertas conuiene que digamos en este, del derecho que han de las Eglesias, aquellos que las fazen de nueuo, que son dichos patrones. E primeramente mostraremos, que quiere dezir patron. E que cosa es patronadgo. E por quales cosas se gana. E que derecho ha el Patron en la Eglesia. E si alguno pusiere clerigo en la Eglesia, non lo presentando el Patron, si la deue auer, o non. E en quantas maneras puede passar el derecho del patronadgo de vn ome a otro. E que deuen fazer quando son muchos patrones en vna Eglesia, e non se acuerdan en presentar clerigo. E fasta quanto tiempo lo pueden presentar, despues que la Eglesia vacare.
 
 ##### LEY I.
 - Que quiere dezir Patron, e patronadgo, e por que se gana, e que derecho ha el patron en la Eglesia
@@ -872,8 +878,9 @@ Moysen fue ome a quien amo mucho Dios, e por ende mandole primeramente en la ley
 ##### LEY XV.
 - Por que razon touo por bien santa Eglesia, que los legos ouiessen derecho de patronadgo
 
-#### TITULO XVI.
-- De los beneficios de santa Eglesia
+#### [TITULO XVI. De los beneficios de santa Eglesia](https://7partidas.hypotheses.org/4048)
+
+Desemejantes, e departidos son los miembros en el cuerpo del ome, maguer son todos ordenados, para el mantener del e por ende aquel que los ha todos conplidamente rescibe dellos dos cosas apostura, e seruicio. E a semejança desto dixo sant Pablo que santa eglesia era cuerpo, e los seruidores della los miembros que la mantienen en fuerça siruiendola bien, e fazenla ser apuesta. Ca bien assi como del coraçon del hombre resciben todos los otros miembros vida: assi de santa eglesia resciben bienfecho, e mantenimiento, todos los que la siruen, e este bien son los beneficios, e las dignidades que della han, onde se mantienen los que la siruen. E pues que en los titulos ante deste, fablamos de las eglesias, e de las cosas que les pertenescen, e del derecho del patronadgo que han los omes en ellas conuiene en este dezir de los beneficios, e de las dignidades, que dellas han los clerigos. E primeramente mostrar, que quiere dezir beneficio. E quien lo puede dar: e a quien. E en que manera, e fasta quanto tiempo. E si los non dieren fasta aquel tiempo, quien ha poder despues de lo dar. E que pena deuen auer los que dan los beneficios, e los que los resciben, como non deuen. E por que cosas los pierden aquellos a quien los dan.
 
 ##### LEY I.
 - Que quiere dezir beneficio, e quien lo puede dar
@@ -914,8 +921,9 @@ Moysen fue ome a quien amo mucho Dios, e por ende mandole primeramente en la ley
 ##### LEY XIX.
 - Por que razones pueden los clerigos tomar las rentas que han de las Eglesias: maguer non las siruan
 
-#### TITULO XVII.
-- De la Simonia en que caen los clerigos, por razon de los beneficios
+#### [TITULO XVII. De la Simonia en que caen los clerigos, por razon de los beneficios](https://7partidas.hypotheses.org/4052)
+
+Persiguieron, e escodriñaron siempre con grande diligencia los santos padres, tambien en la vieja ley, como en la nueua los pecados que los omes fazen. E esto fizieron porque despues que los sopiessen, pudiessen reprehenderlos, e castigar los que pecassen, de guisa que los fiziessen dellos partir: porque fiziessen buena vida en este mundo, e saluassen sus almas en el otro: e diessen buen exemplo, a los que viniessen dellos. E comoquier que los pecados son de muchas maneras: vnos ay mayores que otros e de aquellos mas grandes, es el vno la simonia: porque se faze en las cosas spirituales, e caen tambien en el los legos, como los clerigos. E pues que en el titulo ante deste fablamos de los beneficios, e de las dignidades: que han los clerigos: porque acaesce que por razon dellas caen los omes en simonia mas que en otra cosa: por ende conuiene de fablar en este della. E mostrar primeramente, que cosa es simonia. E de donde tomo este nome. E en quantas maneras se faze. E que pena deue auer el que la fiziere. E quien puede dispensar con el.
 
 ##### LEY I.
 - Que cosa es Simonia, e donde tomo este nome, e en quantas maneras se faze la simonia
@@ -960,8 +968,9 @@ Moysen fue ome a quien amo mucho Dios, e por ende mandole primeramente en la ley
 ##### LEY XXI.
 - Que pena han los trujamanes que andan por medianeros entre aquellos que fazen simonia, e quien puede dispensar con ellos
 
-#### TITULO XVIII.
-- De los sacrillejos
+#### [TITULO XVIII. De los sacrillejos](https://7partidas.hypotheses.org/4056)
+
+Atreuimiento muy grande faze todo Christiano que non guarda, e non honrra a santa eglesia. Esto por muchas razones, ca ella es nuestra madre spiritual, mostrandonos, e guiandonos por carrera de saluacion, para las animas e otrosi en lo temporal, quanto en los cuerpos, porque nos cria e nos conseja, que fagamos bien, e nos guardemos de fazer mal. E por todas estas razones la deuemos honrrar e guardar, assi como a madre. E aun mas, que comoquier que de las madres auemos nascimiento de criança corporalmente, quanto en las almas, non auemos dellas saluacion, si non fazemos obras porque la ganemos. Mas de la Eglesia que nos es madre spiritual, rescebimos buena vida en este mundo, e saluacion en el otro, e por ende la deuemos honrrar, e guardar mas que a otra cosa, asi que ninguno non sea osado de fazer mal, nin fuerça en ella, nin en su cimenterio, nin en las otras sus cosas, ca tambien de la guisa que es simonia vender, o comprar cosa spiritual, otrosi es sacrillejo fazer mal fuerça en la eglesia, o en su cimenterio, o en sus cosas. E pues en el titulo ante deste fablamos de la simonia, en que manera se faze, e por quales cosas caen los omes en ella, conuiene dezir en este titulo del pecado que es llamado sacrillejo. E mostrar que cosa es sacrillejo, e donde tomo este nome. E en quantas maneras se faze, e en quales cosas se faze. E que pena meresce el que faze sacrillejo. E quien deue rescebir la emienda del. E de todas las otras cosas que pertenescen a esta razon.
 
 ##### LEY I.
 - Que cosa es sacrillejo, e donde tomo este nombre
@@ -988,8 +997,9 @@ Moysen fue ome a quien amo mucho Dios, e por ende mandole primeramente en la ley
 ##### LEY XII.
 - Quantas cosas deue catar el judgador quando ouiere de poner pena por sacrillejo a algun ome
 
-#### TITULO XIX.
-- Que fabla de las primicias
+#### [TITULO XIX. Que fabla de las primicias](https://7partidas.hypotheses.org/4060)
+
+Fra vn Dios. E porque el era comienço primero de todas las cosas, por esso trabajaron de le seruir, e de le dar su parte, de los primeros frutos que les el daua. E este conoscimiento fallamos que ouiera Adam, que fue el primero ome, e sus fijos Cayn, e Abel, quando dieron primicias a Dios de los frutos que primero cogieran de la tierra. E otrosi de los ganados que criauan: mas porque Cayn daua de lo peor, non quiso Dios rescebir sus primicias, e rescebio las de Abel, que daua de lo mejor. E pues que en el titulo ante deste fablamos de los sacrillejos, en que se muestran los omes por rebeldes, o soberuios contra la Eglesia, conuiene que se diga aqui de las primicias, en que se muestran los omes que las dan, por reconoscientes, e obedientes a ella. E mostraremos primeramente que cosa es primicia. E quien las mando dar de comienço. E quales omes las deuen dar. E de que cosas. E de la quantia de que se deuen dar. E a quien deuen ser dadas. E como las deuen partir. E por cuyo mandado. E que pena deuen auer los que non las quisieren dar: e despues diremos otrosi de las offrendas.
 
 ##### LEY I.
 - Que cosa es primicia, e quien la mando primero dar
@@ -1012,8 +1022,9 @@ Moysen fue ome a quien amo mucho Dios, e por ende mandole primeramente en la ley
 ##### LEY X.
 - De quales omes non rescibe santa Eglesia ofrenda, e por que razones
 
-#### TITULO XX.
-- De los diezmos que los Christianos deuen dar a Dios
+#### [TITULO XX. De los diezmos que los Christianos deuen dar a Dios](https://7partidas.hypotheses.org/4064)
+
+Abraham fue el primero de los patriarcas, e fue ome muy santo, e fue tan amigo de Dios que dixo por el, que en su linaje serian benditas todas las gentes, e este conosciendo que era poco, aquello que dauan los que fueron ante que el a Dios, segun los bienes que del resciben, començo a dar el diezmo, demas de las primicias, e de las ofrendas, que ellos dauan: e dio lo primeramente a Melchisedech, que era sacerdote, e señaladamente de lo que gano de los Reyes que vencio, quando les quito a Loth su sobrino, que leuauan capiuo. Onde las dos maneras de seruicio de primicias, e de ofrendas, que son dichas en el titulo ante deste: e en este titulo, que es de los diezmos que vsaron los omes seruir a Dios, fasta que dio ley escripta a Moysen, que fue muy santo ome, e tan su amigo, que dixeron, que fablaua assi con el, como vn amigo fablaua con otro, e mando, que todas estas cosas que el quiso tener, para si, en señal de conoscencia de señorio, e de bienfazer, que fuessen escriptas en la ley, porque el pueblo las diesse a los sacerdotes, que fazian sacrificios a Dios, segun la ley vieja, e a los Leuitas que los seruian. E esto fue siempre guardado, e despues quando vino nuestro Señor Iesu Christo confirmolo, diziendo a los judios que maguer dezmauan las cosas menudas, que non deuian dexar de lo fazer de las grandes: e esta palabra les dixo, porque tenia que deuian dezmar de todo, e por ende los Christianos guardaron esto siempre. E los santos que fablaron desto, mostraron por quales razones deuen los omes dar la diezma parte por diezmo: mas que de otro cuento ninguno, e dixeron que nuestro señor Dios ordeno diez ordenes de angeles: e porque la vna dellas cayo por su soberuia, quiso que del linaje de los omes fuesse complida. E otrosi por diez mandamientos que dio nuestro señor Dios escriptos a Moysen, que mando guardar, porque los omes biuiessen bien, e se sopiessen guardar de fazer tal yerro, con que pesasse a Dios, porque ellos non rescibiessen mal. E aun sin esto y a otra razon por que los omes la deuen dar, e esto es por los diez sentidos que Dios les dio, con que fiziessen todos los fechos, que los guarde, e los enderesce porque obren con ellos bien, e mantengan bien, e complidamente los diez mandamientos de la su ley, en tal manera, que siguiendo la humildad de nuestro señor Iesu Christo, merezcan heredar en aquel logar, que la dezena orden de los angeles perdiera por su soberuia. E pues que en el titulo ante deste fablamos de las primicias, e de las ofrendas, que son cosas de que se ayudan mucho los clerigos: conuiene dezir en este de los diezmos, que es otra cosa apartada, de que se ayuda, aun mas, toda la clerezia: tambien los perlados mayores, como los clerigos. E mostraremos primeramente que cosa es diezmo, e quantas maneras son del. E quien lo deue dar, e de que cosas. E a quien, e en que manera deue ser dado. E como lo deuen partir. E que bienes vienen a los omes porque diezman bien. E que daño si mal lo fazen. E de todas las otras cosas que pertenescen al diezmo.
 
 ##### LEY I.
 - Que cosa es diezmo, e quantas maneras son del
@@ -1069,7 +1080,9 @@ Moysen fue ome a quien amo mucho Dios, e por ende mandole primeramente en la ley
 ##### LEY XXVI.
 - De los que venden o compran los frutos de las heredades, ante que sean dezmados, a qual dellos deuen de demandar el diezmo
 
-#### TITULO XXI. Del pegujar de los Clerigos
+#### [TITULO XXI. Del pegujar de los Clerigos](https://7partidas.hypotheses.org/4068)
+
+Establescieron los santos padres en la Eglesia, que ningun clerigo non ouiesse proprio, e los que lo quisiessen auer, que non los rescibiessen para ser clerigos: mas que biuiessen en cada logar, todos en vno: assi que lo que ouiessen, fuesse comunalmente de todos. E esto fizieron, para los desuiar de los peligros en que pueden caer, cobdiciando las riquezas. Teniendo, que muy aduro, las podrian los omes mantener sin pecado. Mas porque vieron, que algunos dellos cayan en peligro de perder las almas, porque non guardauan aquello que auian prometido, de non auer proprio: segund era establescido, mudaron aquel consejo que tomaran de primero. E establescieron, que ouiessen proprio. E los que non se tenian por abondados de los diezmos, e de los otros bienes que auian de santa Eglesia, que morassen apartadamente, cada vno en su casa. Ca touieron, que menor peligro les era, de auer algo paladinamente, que auerlo encubierto, faziendo contra aquello, que auian prometido. E de aquel tiempo en adelante, ouo departimiento, quanto en las ganancias, entre los Clerigos seglares, e los religiosos. Ca los seglares punaron de auer algo manifiestamente: e aquellas cosas que ganauan con derecho, llamauanlas pegujar. E pues, que en los titulos, ante deste, fablamos de las primicias, e de las ofrendas, e de los diezmos, que son maneras, de rentas, que han los clerigos, onde biuen, queremos aqui dezir, del pegujar dellos. E primeramente mostrar que cosa es, e donde tomo esto nome. E quantas maneras son del: e quales clerigos lo deuen auer. E que pueden fazer destos pegujares.
 
 ##### LEY I.
 - Que cosa es pegujar, e donde tomo este nome
@@ -1088,10 +1101,9 @@ Moysen fue ome a quien amo mucho Dios, e por ende mandole primeramente en la ley
 ##### LEY VIII.
 - Del pegujar, que llaman, los clerigos profeticio, que pueden fazer del
 
-#### [TITULO XXII. De las procuraciones, e del censo, e de los pechos, que dan a las eglesias](https://7partidas.hypotheses.org/?p=4069)
+#### [TITULO XXII. De las procuraciones, e del censo, e de los pechos, que dan a las eglesias](https://7partidas.hypotheses.org/4072)
 
-Egualdad, e mesura de uen auer, los perlados quando visitaren las Eglesias, e los monesterios, e los otros logares, que son de su visitacion, que no agrauien, a aquellos, que son tenudos, de visitar. Ca non deuen ser crueles, contra ellos, tomando les mayores procuraciones, nin echando les mayores pecho, de aquellos, que establescio santa Eglesia, e mando que tossen. E como quier, que los omes sean tenudos, cada vno, en sus logares, de les dar, estas cosas sobredichas, quado los visitaren, co todo ello guardar deuen, los perlados, que lo no resciban, dellos, con soberuia, mas mansamente, e con amor, non los agrauiado. E esto deuen fazer, tomando exemplo, de sant Pablo, q mas queria trabajar, de ganar por sus manos, de onde biuielle, quando predicaua, a las gentes, que non tomar, despesas dellas, de manera que se agrauiassen, e se escandalizassen porende. Onde pues que dicho es, en los titulos ante deste, de las Eglesias, e de los clerigos, qlas sirue, e delas rentas dellas, e otrosi de los monesterios, e de las otras casas de religion, las quales deue los perlados visitar, couiene de fablar en este titulo, de las procuraciones e de los tributos, e de los otros derechos, que les deuen dar, los clerigos, destos logares sobredichos, por razon de la visitacion, e del señorio, que han sobre ellos spiritualmete. E mostrar, que cosa es procuracion, e quales la deuen dar, e aquien. E porque razones, e en que manera. E que deuen fazer los perlados, queando visitaré. E otrosi, se muestra, en este titulo, que cosa es censo. E quien lo puede poner, e quando. E despues, que fuere puesto, si lo puede crecer, o menguar, o toller. E quales perlados, pueden poner pecho, en la eglesia, e porque razon. E en quantas maneras passan armas, de lo que deuen, en estas, cosas, sobrecichas, que han de fazzer. 
-
+EGualdad, e mesura deuen auer, los perlados quando visitaren las Eglesias, e los monesterios, e los otros logares, que son de su visitacion, que non agrauien, a aquellos, que son tenudos, de visitar. Ca non deuen ser crueles, contra ellos, tomandoles mayores procuraciones, nin echandoles mayores pechos, de aquellos, que establescio santa Eglesia, e mando que tomassen. E comoquier, que los omes sean tenudos, cada vno, en sus logares, de les dar, estas cosas sobredichas, quando los visitaren, con todo esso guardar deuen, los perlados, que lo non resciban, dellos, con soberuia, mas mansamente, e con amor, non los agrauiando. E esto deuen fazer, tomando exemplo, de sant Pablo, que mas queria trabajar, de ganar por sus manos, de onde biuiesse, quando predicaua, a las gentes, que non tomar, despensas dellas, de manera que se agrauiassen, e se escandalizassen por ende. Onde pues que dicho es, en los titulos ante deste, de las Eglesias, e de los clerigos, que las siruen, e de las rentas dellas, e otrosi de los monesterios, e de las otras casas de religion, las quales deuen los perlados visitar, conuiene de fablar en este titulo, de las procuraciones e de los tributos, e de los otros derechos, que les deuen dar, los clerigos, destos logares sobredichos, por razon de la visitacion, e del señorio, que han sobre ellos, spiritualmente. E mostrar, que cosa es procuracion, e quales la deuen dar, e a quien. E por que razones, e en que manera. E que deuen fazer los perlados, quando visitaren. E otrosi, se muestra, en este titulo, que cosa es censo. E quien lo puede poner, e quando. E despues, que fuere puesto, si lo pueden crecer, o menguar, o toller. E quales perlados, pueden poner pecho, en la eglesia, e por que razon. E en quantas maneras passan amas, de lo que deuen, en estas, cosas, sobredichas, que han de fazer.
 
 ##### LEY I.
 - Que cosa es procuracion, e quien la deue dar, e a quien
