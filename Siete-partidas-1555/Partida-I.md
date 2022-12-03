@@ -1186,6 +1186,811 @@ Romeros, e pelegrinos son omes que fazen sus romerias e pelegrinajes, por seruir
 ##### LEY III.
 - Que preuillejo han los romeros e sus cosas, andando en romeria
 
+### SEGUNDA PARTIDA
+
+#### [TITULO I. Que fabla de los Emperadores, e de los Reyes: e de los otros grandes señores](https://7partidas.hypotheses.org/?p=4825)
+
+Emperadores, e Reyes son los mas nobles omes, e personas en honrra, e en poder, que todas las otras, para mantener, e guardar, las tierras en justicia assi como dicho auemos, en el comienço desta partida. E porque ellos son assi como començamiento, e cabeça de los otros, por ende queremos primero fablar dellos. E mostraremos que cosas son. E por que han assi nome. E por que conuino que fuessen: E que logar tienen. E que poder han. E como deuen vsar del. E despues fablaremos, de los otros grandes Señores.
+
+##### LEY I.
+- Que cosa es imperio, e porque ha assi nome: e por que conuino que fuesse: e que logar tiene
+##### LEY II.
+- que poder ha el Emperador como deue vsar del imperio
+##### LEY III.
+- Que poderio ha el emperador, de fecho
+##### LEY IIII.
+- Como el Emperador deue vsar de su poderio
+##### LEY V.
+- Que cosa es el Rey
+##### LEY VI.
+- Que quiere dezir Rey, e por que es assi llamado
+##### LEY VII.
+- Por que conuino que fuesse Rey, e que lugar tiene
+##### LEY VIII.
+- Que es el poderio del rey, e como deue vsar del
+##### LEY IX.
+- Como el Rey deue amar a dios por la grand bondad que es en el
+##### LEY X.
+- Que quiere dezir tirano, e como vsa su poderio en el Rey no despues que es apoderado del
+##### LEY XI: Quales son los otros grandes, e honrrados Señores que non son Emperadores, nin Reyes
+##### LEY XII.
+- Que poder han los Señores sobredichos, que han el Señorio de las tierras, por heredamiento
+##### LEY XIII.
+- Quales son llamados catanes: e valuasores: potestades: e vicarios e que poder han 
+
+#### [TITULO II. Qual deue el Rey ser, en conocer e amar, e temer a Dios](https://7partidas.hypotheses.org/4860)
+
+COnoscimiento verdadero de Dios es la primera cosa que por derecho deue auer toda criatura, que ha entendimiento.- E comoquier, que esto pertenesce mucho a los omes porque han razon, e entendimiento entre todos ellos, mayormente lo deuen auer los Emperadores e los Reyes, e los otros grandes Señores, que han a mantener las tierras, e gouernar las gentes con entendimiento de razon: e con derecho de justicia. E porque estas cosas, non podrian ellos auer sin Dios conuiene que le conozcan: e conosciendole, quel amen, e amandole, que le teman e que le sepan seruir e loar. E por ende pues que en el titulo ante deste fablamos de los emperadores, e de los reyes, e de los grandes Señores, e porque son assi llamados e porque conuino que fuessen: queremos aqui dezir: como deue el rey conoscer a Dios. E por que razones. E otrosi como le deue amar e temer, seruir e loar. E en cada vna de las leyes deste titulo diremos el pro que yaze en esto quanto bien lo fiziere. E otrosi el daño quando non lo fiziesse assi.
+
+##### LEY I.
+- Como el Rey deue conoscer a Dios, e porque razones
+##### LEY II.
+- Como el rey deue seruir e loar a Dios
+##### LEY III.
+- Qual deue el rey ser en si mismo primeramente en sus pensamientos
+##### LEY IIII.
+- Como el Rey deue seruir e loar a Dios 
+
+#### [TITULO III. Qual deue el rey ser en si mismo e primeramente en sus pensamientos](https://7partidas.hypotheses.org/4860)
+
+Ome segund natura, ha en si tres cosas. La vna es pensamiento, en que asma los fechos que ha de fazer. La otra es palabra con que los muestra. La tercera obra con que aduze a acabamiento lo que piensa. E por esso, pues que en el titulo ante deste fablamos, quel deue el rey ser quanto a Dios, queremos a dezir qual ha de ser en si mismo en los pensamientos, que cosa es pensamiento, e por que ha assi nome, e onde nasce. E como ha de ser fecho. E sobre que cosas para nascer ende bien. E en cada vna de las leyes deste titulo demostraremos el daño, que viene del quando non es fecho como deue.
+
+##### LEY I.
+- Que cosa es pensamiento, e por que ha assi nome
+##### LEY II.
+- Onde nasce el pensamiento, e como deue ser fecho
+##### LEY III.
+- Como el rey, non deue cobdiciar en el coraçon honrra sobejana, e sin pro
+##### LEY IIII.
+- Como el Rey non deue mucho cobdiciar, en su coraçon grandes riquezas ademas
+##### LEY V.
+- Que el rey non deue cobdiciar ser muy vicioso 
+#### TITULO IIII.
+- Qual deue el Rey, ser en sus palabras
+##### LEY I.
+- Que cosa es palabra, e a quien tiene pro
+##### LEY II.
+- Quantas maneras son de palabras, e como se deue dezir
+##### LEY III.
+- Que el rey deue guardar su boca que non diga palabras menguadas
+##### LEY IIII.
+- De como el rey, se deue guardar que non diga palabras desconuenientes
+##### LEY V.
+- Que daño viene de la palabra quando non es dicha como deue 
+
+#### [TITULO V. Qual deue el rey ser en sus obras]
+
+
+##### LEY I.
+- Que cosa es obra, e quantas maneras son della
+##### LEY II.
+- Como el Rey ha de ser mesurado en comer e en beuer
+##### LEY III.
+- Que el Rey deue guardar, en que lugar faze linaje
+##### LEY IIII.
+- Que el rey deue fazer sus fechos, en buen continente
+##### LEY V.
+- Que el Rey se deue vestir muy apuestamente
+##### LEY VI.
+- Que el Rey deue ser manso, e que departimiento ha entre costumbres e maneras
+##### LEY VII.
+- Quales virtudes deue auer el Rey, para ganar amor de Dios
+##### LEY VIII.
+- Que virtudes deue auer el rey: para beuir derechamente, en este mundo: e ser bien acostumbrado
+##### LEY IX.
+- Que cosa deue el Rey vsar, cotidianamente, para ser acostumbrado bien
+##### LEY X.
+- que el Rey deue auer sufrencia: en la saña, mas que otro
+##### LEY XI.
+- Que se deue el Rey guardar, de la yra, que non le faga errar
+##### LEY XII.
+- Como se deue el rey guardar del malquerencia
+##### LEY XIII.
+- Como el Rey non deue cobdiciar a fazer cosa que sea contra derecho
+##### LEY XIIII.
+- Como el rey non deue cobdiciar a fazer cosa que sea contra derecho: la qual ha de Iuzgar solo por posible
+##### LEY XV.
+- Como el rey non deue auer cobdicia de fazer las cosas en el tiempo que non deuen ser fechas, como las cosas del placer en tiempo de pesar e por el contrario
+##### LEY XVI.
+- Como el Rey, deue ser acucioso, en aprender a leer, e de los saberes, lo que podiere
+##### LEY XVII.
+- Como el Rey se deue trabajar en conoscer los omes
+##### LEY XVIII.
+- Como deue ser el rey graciado e franco
+##### LEY XIX.
+- Como el Rey deue ser mañoso
+##### LEY XX.
+- Como el rey deue ser mañoso en caçar
+##### LEY XXI.
+- De que alegria deue el rey vsar a las vegadas para tomar conorte en los pesares e en las cuytas 
+
+#### TITULO VI. Qual deue el Rey ser a su muger e ella a el
+
+
+##### LEY I.
+- Quales cosas deue el Rey catar en su casamiento
+##### LEY II.
+- Como el rey deue amar, e honrrar, e guardar a su muger 
+
+#### TITULO VII. Qual deue el rey ser a sus fijos, e ellos a el
+
+
+##### LEY I.
+- Como el Rey deue amar sus fijos, e por que razones
+##### LEY II.
+- Como el rey ha de fazer criar a sus fijos con femencia
+##### LEY III.
+- En que manera deuen ser guardados los fijos de los Reyes
+##### LEY IIII.
+- Que los fijos de los Reyes deuen auer ayos, de buen linaje, bien acostumbrados, discretos & de buen entendimiento
+##### LEY V.
+- Que cosas deuen acostumbrar a los fijos de los Reyes para ser apuestos e limpios
+##### LEY VI.
+- Como los fijos de los Reyes deuen ser mesurados en beuer el vino
+##### LEY VII.
+- Como los ayos deuen mostrar a los fijos de os reynos como fablen bien e apuestamente
+##### LEY VIII.
+- que los ayos deuen mostrar a los fijos de los Reyes que ayan buen contenente
+##### LEY IX.
+- Quales cosas deuen enseñar los Reyes a sus fijos
+##### LEY X.
+- Que cosa deuen mostrar, a los fijos de los Reyes, quando comienzan a ser donzeles
+##### LEY XI.
+- Quales amas e ayas deuen auer las fijas de los Reyes; e como deuen ser guardadas
+##### LEY XII.
+- Como el Rey, & la Reyna se deuen trabajar de casar sus fijas, e guardarlas
+##### LEY XIII.
+- Como el Rey deue fazer bien a sus fijos e castigarlos quando erraren 
+
+#### TITULO VIII. Qual ha de ser el Rey a los otros sus parientes e ellos a el
+
+
+##### LEY I.
+- Como el Rey, deue amar e honrrar, e fazer bien, a aquellos con quien ha debdo por linaje
+##### LEY II.
+- en que manera deue el rey escarmentar a sus parientes, quando algun yerro fizieren 
+
+#### TITULO IX. Qual deue el Rey ser a sus officiales, e a los de su casa, e de su corte, e ellos a el
+
+
+##### LEY I.
+- que quiere dezir oficio, e quantas maneras son de oficiales
+##### LEY II.
+- quales omes deue el Rey recebir en su casa para seruirse dellos
+##### LEY III.
+- Qual deue ser el capellan del rey
+##### LEY III.
+- Qual deue ser el canceler
+##### LEY V.
+- Quales deuen ser los consejeros del Rey
+##### LEY VI.
+- Quales deuen ser los ricos omes: e que deuen fazer
+##### LEY VII.
+- Quales deuen ser los notarios del rey e que es lo que han de fazer
+##### LEY VIII.
+- Quales deuen ser los escriuanos del Rey que deuen fazer
+##### LEY IX.
+- Quales deuen ser los amesnadores del Rey: e que es lo que deuen fazer
+##### LEX [sic] X.
+- Quales deuen ser los fisicos del rey: & que es lo que deuen fazer
+##### LEY XI.
+- Quales deuen ser los oficiales del Rey que han de seruir en su comer e en su beuer
+##### LEY XII.
+- Qual deue ser el repostero e el camarero del Rey
+##### LEY XIII.
+- Quales deuen ser los despenseros del rey e que es lo que deuen fazer
+##### LEY XIIII.
+- Quales deuen ser los porteros del Rey e que es lo que deuen fazer
+##### LEY XV.
+- Qual deue ser el aposentador del rey e que es lo que deue fazer
+##### LEY XVI.
+- Qual deue ser el alferez del rey & que es lo que pertenesce a su officio
+##### LEY XIV.
+- Qual deue ser el mayordomo del Rey & que ha de fazer
+##### LEY XVIII.
+- Quales deuen ser los juezes del Rey & que deuen fazer
+##### LEY XIX.
+- Qual deue ser el adelantado del Rey
+##### LEY XX.
+- Quien es el que ha de fazer la justicia en la corte del Rey
+##### LEY XXI.
+- Quales deue ser los mandaderos del Rey
+##### LEY XXII.
+- Que deuen fazer los adelantados que son puestos por mano del Rey en las comarcas
+##### LEY XXIII.
+- Que deuen fazer los merinos mayores
+##### LEY XXIIII.
+- Que deue fazer el almirante e qual ha de ser
+##### LEY XXV.
+- Quales deuen ser los almoxarifes e los que tienen las rentas del rey en fieldad, e los cojedores, e que es lo que han de fazer
+##### LEY XXVI.
+- En que manera, e que cosa deuen jurar los officiales del Rey
+##### LEY XXVII.
+- Que cosa es corte, e por que ha assi nome, e qual deue ser
+##### LEY XXVIII.
+- Que semejança pusieron los antiguos a la corte del Rey
+##### LEY XXIX.
+- Que cosa es palacio, e por que le llaman assi
+##### LEY XXX.
+- Quantas cosas deuen ser catadas en el retraer 
+
+#### TITULO X. Qual deue el Rey ser, comunalmente, a todos los de su Señorio
+
+
+##### LEY I.
+- Que quier dezir pueblo
+##### LEY II.
+- Como el Rey deue amar e honrrar e guardar a su pueblo
+##### LEY III.
+- Por que razones deue el rey amar, e honrrar, e guardar a su pueblo 
+#### TITULO XI.
+- Qual deue el rey ser a su tierra
+##### LEY I.
+- Como deue el Rey amar a su tierra
+##### LEY II.
+- Como deue el Rey honrrar a su tierra
+##### LEY III.
+- Como el rey deue guardar su tierra 
+#### TITULO XII.
+- Qual deue el pueblo ser en conoscer, e en amar, e en temer a dios, e a su rey
+##### LEY I.
+- Como el Rey, e el pueblo, deuen conocer a dios, naturalmente
+##### LEY II.
+- Como deue el pueblo conocer a dios, por creencia de ley
+##### LEY III.
+- Por que razones deue el pueblo auer fe en dios
+##### LEY IIII.
+- Por que razones deue el pueblo auer esperança en dios
+##### LEY V.
+- Que bienes uienen al pueblo que ha firme esperança en dios
+##### LEY VI.
+- Por que razones deue el pueblo amar a dios
+##### LEY VII.
+- Por que razone es el pueblo muy tenudo amar a Dios
+##### LEY VIII.
+- Como el Pueblo deue temer a Dios, e por que razon
+##### LEY IX.
+- Quales bienes vienen al pueblo quando temen a Dios 
+#### TITULO XIII.
+- Qual deue el pueblo ser en conoscer e en honrrar, e en guardar al Rey
+##### LEY I.
+- Como el pueblo deue cobdiciar siempre de ver bien del rey, e non su mal
+##### LEY II.
+- Como el pueblo deue siempre querer bien oyr del rey e non su mal
+##### LEY III.
+- Como el pueblo deue sentir de lueñe el bien del Rey para llegarlo e su mal para arredrallo
+##### LEY IIII Como deue el pueblo auer plazer con la buena fama del rey e pesarle de la mala
+##### LEY V.
+- Como el pueblo deue siempre dezir verdada al rey guardarse de mentirle
+##### LEY VI.
+- Como el pueblo deue tañer las cosas que fueren a seruicio, e honrra del rey, e non aquellas en quel yoguiesse muerte o ferida, o deshonrra
+##### LEY VII.
+- Como el pueblo deue bien seruir al Rey e guardarse del contrario desto
+##### LEY VIII.
+- Como el pueblo deue obrar en los fechos del Rey con assosegamiento, e con seso, e non rebatosamente, por antojança
+##### LEY IX.
+- Como el pueblo deue pensar, e conocer aquellas cosas, que fueren a pro del Rey, para fazer.
+- E las que fueren a su daño, desuiarlas e tollerlas
+##### LEY X.
+- Como el pueblo deue asmar las cosas que fueren a pro de la vida, e de la salud del Rey, e fazerlas, e llegarlas, e las que fueren contrarias desto, non ser dellas fechores, e guardar que las non faga otro
+##### LEY XI.
+- Como el pueblo deue auer siempre en remembrança el Señorio el Rey para guardar, e obedescer su mandamiento
+##### LEY XII.
+- Como los santos se acordaron con los sabios antiguos, que el pueblo es tenudo de fazer el rey, las cinco cosas que en esta ley dize
+##### LEY XIII.
+- Que a semejante del conoscimiento de las cosas qual es por su esencia e por su operacion assi el pueblo ha de conocer su Rey
+##### LEY XIIII.
+- Por que razones deue el pueblo amar al Rey
+##### LEY XV.
+- Como el pueblo deue temer al rey, e que repartimiento ha entre temor e miedo
+##### LEY XVI.
+- Como el pueblo deue enuergonçar e obedecer al Rey
+##### LEY XVII.
+- Como el pueblo deue honrrar al Rey en dicho
+##### LEY XVIII.
+- Como el pueblo deue honrrar al Rey de fecho
+##### LEY XX.
+- [sic] Como el pueblo deue honrrar al Rey despues que fuere finado
+##### LEY XX.
+- en que manera deue honrrar el pueblo al Rey nueuo que reynare
+##### LEY XXI.
+- Como deuen entregar al rey nueuo las villas, e los castillos, e las otras fortalezas e en que manera deuen fazer omenaje aquellos a quien los el diere, que los tengan por el
+##### LEY XXII.
+- Como deuen fazer omenaje al Rey nuevo de los castillos que ouiessen auido por eredamiento de los otros Reyes
+##### LEY XXIII.
+- Como deuen fazer omenaje al Rey nuevo de los castillos que son en su señorio: maguer los ouiessen algunos heredado de otra parte
+##### LEY XXIIII.
+- Como deuen fazer omenaje de los castillos, que algunos touiessen, por postura, o por feudo
+##### LEY XXV.
+- En quales cosas deue el pueblo guardar al Rey
+##### LEY XXVI.
+- Como el pueblo es tenudo de guardar su señor 
+#### TITULO XIIII.
+- Qual deue ser el pueblo en guardar el Rey, e su muger, e sus fijos, e los otros sus parientes, e en las dueñas, e en las doncellas, e en las otras mugeres que andan con ella
+##### LEY I.
+- Como el pueblo deue guardar al Rey a su muger la Reyna
+##### LEY II.
+- Como el Rey deue ser guardado, en sus fijos, e en los otros sus parientes
+##### LEY III.
+- Como deue el pueblo guardar al Rey, en las dueñas, en las donzellas, que andan en casa de la reyna
+##### LEY IIII.
+- Como el pueblo deue guardar al Rey, en las amas, e en las otras mugeres, que fueren en casa de la Reyna 
+#### TITULO XV.
+- Qual deue ser el pueblo en guardar al rey en sus fijos
+##### LEY I.
+- como deue el pueblo guardar los fijos del Rey
+##### LEY II.
+- Como el fijo mayor ha adelantamiento, e mayoria sobre los otros sus hermanos
+##### LEY III.
+- Como deuen ser escogidos los guardadores del rey niño si su padre non ouiere dexado guardadores
+##### LEY IIII.
+- Que cosas es tenudo de fazer guardar el Rey nuevo por el finado
+##### LEY V.
+- Como el Rey e todos los del reyno deuen guardar que el Señorio sea siempre vno e no lo enajenen ni lo departan
+##### LEY VI.
+- Qual deue el pueblo ser al Rey en guardar los parientes del Rey 
+#### TITULO XVI.
+- Como el pueblo deue guardar al Rey en sus oficiales e en su corte, e a los que biuen en ella
+##### LEY I.
+- Como deuen ser guardados los que fueren en la corte del Rey, o vinieren a ella
+##### LEY II.
+- Como deuen ser guardados, todos los que fueren en la corte del rey, o viniessen a ella
+##### LEY III.
+- Que pena deuen auer los que boluieren pelea en el lugar do el Rey fuere, e los que mataren o ferieren
+##### LEY IIII.
+- Como deuen ser guardados, los que vienen a la corte del Rey, o se fueren della
+#### TITULO XVII.
+- Qual deue el pueblo ser en guarda del rey en sus cosas muebles, e rayzes que pertenescen a el, para su mantenimiento
+##### LEY I.
+- Como deue el Rey ser guardado: en sus cosas, quier sean muebles o rayzes: e por que las llaman assi
+##### LEY II.
+- Como deue el pueblo guardar las casas e los cilleros del Rey: e que pena meresce quien errare en esta guarda
+#### TITULO XVIII.
+- Qual deue el pueblo ser, en guardar, e en bastecer, e en defender los castillos, e las fortalezas del Rey, e del Reyno
+##### LEY I.
+- Como deue el pueblo guardar al rey, en sus castillos, e en sus fortalezas: e que pena merescen los que errassen en esta guarda
+##### LEY II.
+- Como deuen ser dados, e recebidos, los castillos e en que manera
+##### LEY III.
+- Por que razones touieron por bien los antiguos, que las entregas de los castillos, fuessen fechas por mano de portero: e que deuen auer, los que non fueren a recebirlos, al plazo que les posiessen
+##### LEY IIII.
+- Como e quantas maneras son de castillos, que se pueden recebir sin portero e por quales razones
+##### LEY V.
+- por quales razones pueden los que han de rescebir los castillos, dar otros que los resciban por ellos
+##### LEY VI.
+- Quales deuen ser los alcaydes de los castillos: e que es lo que deuen fazer por sus cuerpos, en guarda dellos
+##### LEY VII.
+- Qual deue ser el alcayde que finca en el castillo por mano del mayor quando el va a alguna parte, e que es lo que deue fazer el e los otros que y fincan
+##### LEY VIII.
+- En que manera deuen fazer alcayde.
+- quando el que tiene el castillo: muriesse sin lengua
+##### LEY IX.
+- Que el alcayde deue tener en el castillo tantos omes e tales, con que lo pueda bien guardar
+##### LEY X.
+- En que manera deuen ser bastecidos los castillos de viandas: e de todas las otras cosas que son menester
+##### LEY XI.
+- Como deuen ser bastecidos los castillos de armas
+##### LEY XII.
+- Como se deuen los castillos con esfuerço, e con ardimiento defender e guardar
+##### LEY XIII.
+- Que en defender los castillos ha menester cordura e sabiduria
+##### LEY XIIII.
+- Como el alcayde del castillo deue vsar de su sabiduria
+##### LEY XV.
+- Como los castillos deuen ser acorridos labrandolos
+##### LEY XVI.
+- En que manera deuen los alcaydes acorrer en tiempo de guerra a los castillos que touieren del Rey
+##### LEY XVII.
+- Como los del pueblo deuen acorre a los castillos quando los enemigos los cercassen, e los combatiessen
+##### LEY XVIII.
+- En que manera deuen ser dados los castillos a los Señores cuyos fueren para guardar los omes su lealtad
+##### LEY XIX.
+- Por que razones non esta mal al alcayde, en non dar el castillo por mandado de su señor maguer aya recebido portero del Rey
+##### LEY XX.
+- En que manera deuen los alcaydes emplazar los castillos, quando los señores son en culpa, non los queriendo tomar
+##### LEY XXI.
+- Que deue aun fazer el alcayde, despues que ouiere emplazado el castillo
+##### LEY XXII: Como el alcayde, puede emplazar, el castillo, non lo queriendo dar el Señor, lo que ouiesse a dar, por la tenencia del
+##### LEY XXIII.
+- Que es lo que deue ser guardado quando los alcaydes emplazan los castillos como non deuen
+##### LEY XXIIII.
+- Como se deuen emplazar, e dar los castillos, que son dados, en fieldad
+##### LEY XXV.
+- Por quales razones defendieron los antiguos: que non reptasse el Rey a su natural
+##### LEY XXVI.
+- Como deue fazer el que touiesse castillo de fieldad, despues que lo ouiesse dado a su Señor
+##### LEY XXVII.
+- Como el que touiere castillo en fieldad, nol deue dar al otro rey, maguer gelo mandasse su Señor
+Ley XXVIII.
+- Como deue fazer del castillo de fieldad, el que lo tiene de naturaleza, o de vasallaje con vn Rey, e non con otro
+##### LEY XXIX.
+- Como deuen fazer de los castillos de fieldad, aquellos que los tienen, e non son vassallos, nin naturales del un Rey, nin del otro
+##### LEY XXX.
+- Por que razones deuen tomar con derecho los castillos de fieldad, de los que los tuuieren
+##### LEY XXXI.
+- Por que razones se pueden los Reyes tomar los castillos, los vnos a los otros, que auian metido en fieldad, e por quales maneras se los tornan, si los han de tornar
+##### LEY XXXII.
+- Como deuen dar los castillos al rey que fuessen ganados o combatidos en sus conquistas por sus vassallos o por sus naturales 
+#### TITULO XIX.
+- Qual deue ser el pueblo, en guardar el Rey de sus enemigos
+##### LEY I.
+- Que cosa es enemistad e quantas maneras son de enemigos
+##### LEY II.
+- Como deue el pueblo guardar al rey e a todos sus vassallos de sus enemigos
+##### LEY III.
+- Como deue guardar el pueblo la tierra, e venir en hueste, contra los que se alçassen en ella
+##### LEY IIII.
+- Como deue el pueblo venir en la hueste, quando los enemigos de fuera, entrassen en la tierra para fazer daño de pasada
+##### LEY V.
+- Como deue el pueblo venir en hueste, quando los enemigos de fuera cercassen alguna villa o castillo, en la tierra del Rey
+##### LEY VI.
+- Como deue el pueblo venir en hueste quando los enemigos de fuera entrassen en la tierra para lidiar con el Rey a dia señalado
+##### LEY VII.
+- Como el pueblo deue venir en hueste: Quando el Rey su Señor, entrasse en la tierra, de los enemigos, para fazerles mal de pasada
+##### LEY VIII.
+- Como el pueblo deue venir en hueste, quando el Rey quisiere cercar villa o castillo de sus enemigos
+##### LEY IX.
+- Como deue el pueblo venir en la hueste: quando el Rey ouiesse auer batalla, con sus enemigos, dentro en la tierra dellos 
+#### TITULO XX.
+- Qual deue ser el pueblo a la tierra onde son naturales
+##### LEY I.
+- Como el pueblo deue punar de fazer linaje para poblar la tierra
+##### LEY II.
+- De quales cosas se deuen los omes guardar que non sean embargados de fazer linaje
+##### LEY III.
+- Como el pueblo deue criar su linaje, e acostumbrar bien e saberse seruir del
+##### LEY IIII.
+- Que el pueblo se deue trabajar de traer los frutos de la tierra, e las otras cosas de que se han de gouernar
+##### LEY V.
+- Que partimiento ha entre lauor e obra
+##### LEY VI.
+- Como el pueblo se deue apoderar de la tierra, e enseñorearse de las cosas que son en ella, para acrecentarla
+##### LEY VII.
+- Como el pueblo se deue apoderar de la tierra por fuerça
+##### LEY VIII.
+- De que cosas ha de estar el pueblo apercibido e guardado, por guardar su tierra e apoderarse de sus enemigos 
+#### TITULO XXI.
+- De los caualleros, e de las cosas que les conuiene fazer
+##### LEY I.
+- Por que razones la caualeeria e los caualleros ouieron assi nome
+##### LEY II.
+- Como deuen ser escogidos los caualleros
+##### LEY III.
+- Como los fijosdalgo deuen guardar la nobleza, e la fidalguia
+##### LEY IIII.
+- Como los caualleros deuen auer en quatro virtudes principales
+##### LEY V.
+- Que los defensores deuen ser entendidos
+##### LEY VI.
+- Que los caualleros deuen ser sabidores para saber obrar de su entendimiento
+##### LEY VII.
+- Que los caualleros deuen ser bien acostumbrados
+##### LEY VIII.
+- Como deuen los caualleros ser arteros e mañosos
+##### LEY IX.
+- Como deuen ser los caualleros muy leales
+##### LEY X.
+- Que los caualleros deuen ser sabidores para conocer los cauallos, e las armas que traxieren en si son buenos o non
+##### LEY XI.
+- Quien ha poder de fazer los caualleros o non
+##### LEY XII.
+- Quales non deuen ser caualleros
+##### LEY XIII.
+- Que cosa deue fazer el escudero ante que reciba caualleria
+##### LEY XIIII.
+- Como han de ser fechos los caualleros
+##### LEY XV.
+- Como han de desceñir la espada el nouel, despues que fuere fecho cauallero
+##### LEY XVI.
+- Que debdo han los noueles con los que los fazen caualleros, e con los padrinos que los desciñen las espadas
+##### LEY XVII.
+- Que cosa deuen guardar los caualleros quando caualgaren
+Ley XVIII.
+- En que manera se deuen vestir los caualleros
+##### LEY XIX.
+- Como los caualleros deuen ser mesurados
+##### LEY XX.
+- Como ante los caualleros deuen leer las estorias de los grandes fechos de armas quando comieren
+##### LEY XXI.
+- Que cosas son tenudos los caualleros de guardar
+##### LEY XXII.
+- Que cosas deuen fazer, e guardar los caualleros, en dichos e en fechos
+##### LEY XXIII.
+- En que manera deuen honrrar los caualleros
+##### LEY XXIIII.
+- Que mejoria han los caualleros Apartademente mas que los otros omes
+##### LEY XXV.
+- Por quales razones pierden los caualleros honrra de la caualleria 
+#### TITULO XXII.
+- De los adalides: e almogauares, e de los peones,
+##### LEY I.
+- Que cosa deue auer el adalid en si: e qual deue ser: e por que son assi llamados
+##### LEY II.
+- Como deue ser escogido el adalid, e quien lo puede fazer
+##### LEY III.
+- Como deuen fazer el adalid, e que le deue dar el que lo fiziere: e que poder: e que honrra, gana despues que fuere adalid
+##### LEY IIII.
+- Por quales razones deuen ser fechos, los adalides honrradamente.
+- E que poder han.
+- E que pena merescen, si non lo fazen bien, lo que han de fazer
+##### LEY V.
+- Que cosas deue auer en si, el almocaden: e que deue fazer el que lo fiziere
+##### LEY V.
+- Como deue ser fecho el almocaden: e que pena meresce, si non vsasse bien de su oficio
+##### LEY VII.
+- Quales deuen ser los peones, por la tierra, e como deuen ser escogidos e guisados 
+#### TITULO XXIII.
+- De la guerra que deuen fazer todos los de la tierra
+##### LEY I.
+- Que cosa es guerra, e quantas maneras son della
+##### LEY II.
+- Por que razones se mueuen los omes a fazer guerra
+##### LEY III.
+- De que cosa deuen estar apercebidos, e guardados los que quieren fazer guerra
+##### LEY IIII.
+- Quales deuen ser escogidos para cabdillos: de la guerra e por quales razones
+##### LEY V.
+- Como deuen ser los cabdillos esforçados contra los enemigos
+##### LEY VI.
+- Como los cabdillos deuen ser auisados de lo que ouieren de fazer ante que al fecho vengan
+##### LEY VII.
+- Como los cabdillos deuen siempre catar su mejoria
+##### LEY VIII.
+- Quales cosas deuen fazer los cabdillos que vsen los omes en el fecho de guerra
+##### LEY IX.
+- Como los omes deuen ser acabdellados por mandamiento del cabdillador, e que manera se ha de tener, para encobrir lo suyo, e saber lo de los enemigos
+##### LEY X.
+- Que los que ouieren de guerrear deuen ser sofridores e feridores
+##### LEY XI.
+- Quales son los bienes, que vienen por el buen acabdillamiento quando es bien fecho, como deue
+##### LEY XII.
+- Quales deuen ser las señales que traxeren los cabdillos, e quien las puede traer, e por que razones
+##### LEY XIII.
+- Quantas maneras son de señas, mayores, e quien las puede traer, e por que razones
+##### LEY XIIII.
+- Quantas maneras son de pendones
+##### LEY XV.
+- Que otro ome non deue traer seña, ni pendon cotidianamente, sinon el Rey
+##### LEY XVI.
+- Quantas maneras son de hazer, e como se deuen partir
+##### LEY XVII.
+- Como los de al hueste deuen ser acabdillados quando se mueuen
+##### LEY XVIII.
+- Como deuen fazer quando los enemigos dieren salto en la hueste
+##### LEY XIX.
+- En que lugares deuen los cabdillos aposentar las huestes
+##### LEY XX.
+- en que manera deuen aposentar las huestes
+##### LEY XXI.
+- Como deuen ser acordadas las huestes
+##### LEY XXII.
+- como deuen ser guardadas, e guiadas las recuas, quando fueren con las viandas a las huestes.
+- E los que van por yerua o por paja o por leña
+##### LEY XXIII como deue ser aposentada la hueste e quando cercan alguna villa o algund castillo de los enemigos
+##### LEY XXIIII.
+- Como deuen los que fueren en hueste ser aparejados de engeños, e de las otras cosas que son menester para fazer daño a los enemigos
+##### LEY XXV.
+- Como deuen fazer daño a los enemigos en la manera que supieren que verna mas daño
+##### LEY XXVI.
+- Como deuen parar engeño a villa, o a castillo
+##### LEY XXVII.
+- Que pone diuersos nombres e maneras de guerrear
+##### LEY XXVIII.
+- Como los omes deuen ser acabdillados: & quantas maneras son de caualgadas
+##### LEY XXIX.
+- Como deuen fazer las algaras, & las correduras
+##### LEY XXX.
+- Que cosas deuen catar los que se meten en las celadas 
+#### TITULO XXIIII.
+- De la guerra que se faze por la mar
+##### LEY I.
+- Que cosa es la guerra de la mar, e quantas maneras son Della, e de que cosas ha menester esten guisados los que la quieren fazer
+##### LEY II.
+- Quales omes son menester para armamiento de los nauios quando quisieren guerrear
+##### LEY III.
+- Qual deue ser el almirante, como deue ser fecho
+##### LEY IIII.
+- Quales deuen ser comieres, e como deuen ser fechos, e otrosi que poderio han
+##### LEY V.
+- Quales deuen ser los noacheros, o como deuen ser fechos: e que poder han
+##### LEY VI.
+- Quales deuen ser los proeles, e los sobresalientes: e los que han de guardar las armas: e las viandas: e la otra xarcia de los nauios
+##### LEY VII.
+- Quales son mejores nauios, para guerrear, e de como deuen ser aparejados
+Ley VIII.
+- En que manera pusieron los antiguos semejante a los nauios de los cauallos
+##### LEY IX.
+- Como los nauios deuen ser bastecidos de omes, e de armas, e de las viandas
+##### LEY X.
+- Como los que se aventuran a guerra de mar deuen ser guardados, e honrrados, quando bien fizieren, e escarmentarlos, quando fizieren el contrario 
+#### TITULO XXV.
+- De las emiendas a las quales dizen en España enchas
+##### LEY I.
+- Que quiere dezir emienda, e por que razones la deuen fazer, e en quantas maneras
+##### LEY II.
+- Como deuen ser fechas las emiendas de los daños que los omes resciben en sus cuerpos
+##### LEY III.
+- Por quales razones deuen fazer las enchas por los que matan en las caualgadas
+##### LEY IIII.
+- Como deuen loas bestias, e las armas de las huestes, e de la caualgada ante que se vayan del lugar, porque se pan como se han de fazer las emiendas
+##### LEY V.
+- Como deuen fazer las enchas del daño que los omes resciben de sus cosas, quando non las ouieren apreciado 
+#### TITULO XXVI.
+- De la parte que los omes deuen auer, de lo que ganaren en las guerras
+##### LEY I.
+- Que quiere dezir particion, e a que tiene pro: e como se deue fazer
+##### LEY II.
+- De como los omes se deuen guardar, de non querer ser mucho cobdiciosos, en las guerras, o en las otras cosas que fazen
+##### LEY III.
+- Como los omes non se deuen parar a robar, quando entraren en villa, e castillo, o otra fortaleza, e que pena deuen auer los que lo fiziessen
+##### LEY IIII.
+- Por que razones deuen dar al rey sus derechos de lo que ganaren en las guerras
+##### LEY V.
+- De quales cosas deuen dar su derecho al Rey, de lo que ganaren en las guerras
+##### LEY VI.
+- En que manera deuen dar al rey su derecho de lo que ganaren en las guerras
+##### LEY VII.
+- En que manera deue dar quinto al Rey, la caualgada, quando sale del lugar, do es el Rey, o de otras partes
+##### LEY VIII.
+- De quales cosas que son ganadas, en las guerras, non deuen dar derecho al Rey
+##### LEY IX.
+- Como se deue fazer la particion, de manera, que aya su derecho, cada vno
+##### LEY X.
+- Como las atalayas, e las escuchas deuen fazer su oficio, o auer parte de todo lo que ganaren
+##### LEY XI.
+- como los barruntes, e los que e fueren a tomar lengua deuen auer parte de lo que ganaren los otros
+##### LEY XII.
+- Que deuen fazer los cuadrilleros, e las guardas, de lo que se gana en las guerras, e que parte deuen auer dello
+##### LEY XIII.
+- Como deuen ser pagados, los officiales, quando non pusieron cierta cosa que les den
+##### LEY XIIII.
+- como deuen partir lo que ganaren en la lid
+##### LEY XV.
+- Como non deuen robar el campo de las cosas que y ganaren
+##### LEY XVI.
+- Como no deuen traer a particion ninguna cosa de lo que se ganare en las assonadas
+##### LEY XVII.
+- Que en las assonadas, non deue prender vn ome a otro, para lleuarlo a su prision, nin matarlo, despues que fuere vencido, nin destorpallo
+##### LEY XVIII.
+- Que derechos deuen auer los omes, de lo que ganaren en el torneo, o en la espolonada o en justa o en lid
+##### LEY XIX.
+- Como deuen partir lo que fallaren en villa o castillo que sea entrado por fuerça
+##### LEY XX.
+- Que deuen fazer de las cosas que ganaren en la guerra despues que ouiessen dados, todos sus derechos al rey, o a los oficiales, ante que lleguen a la particion comunal
+##### LEY XXI.
+- Como deuen partir las ganancias que fizieren los que se echaren en la celada sobre alguna villa, o camino, quier sean dos compañas o vna
+##### LEY XXII.
+- Como deuen fazer, quando dos compañas, yazieren en celada,& ouieron sabiduria, la vna de la otra
+##### LEY XXIII.
+- Como deuen fazer partir lo que ganassen, quando dos caualgadas, o mas coriedro caualgada, se fallaren en vno
+##### LEY XXIIII.
+- Como deuen partir lo que ganaren en apellido, e como deuen partir lo que ganaren despues
+##### LEY XXV.
+- Como deuen ser partidas las ganancias que ganaren en el apellido que fuesse fecho en tiempo de guerra
+##### LEY XXVI.
+- Como deuen fazer los que fueren en apellido, de lo que tiraren a los enemigos, ante que lo metan en su pro
+##### LEY XXVII.
+- Como deuen ser partidas las cosas que ganaren en guerra segun la quantidad de los omes
+##### LEY XXVIII.
+- Por que ha nome caualleria la parte que los omes ganan en las guerras, e como deue ser dada
+##### LEY XXIX.
+- Que drecehos deuen dar al Rey de lo que ganaren en mar
+##### LEY XXX.
+- De como deuen partir entre si lo que ganaren en la flota o en la armada
+##### LEY XXXI.
+- Que cosa es almoneda: e como se deue vender en ella lo que ganan en guerra
+##### LEY XXXII.
+- Que cosa es almoneda, e como se deue fazer de las cosas que se gana en guerra
+##### LEY XXXIII.
+- Quales cosas deuen fazer los corredores en fecho de las almonedas
+##### LEY XXXIIII.
+- Quales deuen ser, e que deuen fazer los escriuanos de las almonedas 
+#### TITULO XXVII.
+- De los gualardones, e de como se deuen fazer
+##### LEY I.
+- Que cosa es gualardon, e quien lo deue fazer, e a quien deue ser fecho
+##### LEY II.
+- Que pro nasce del gualardon quando es dado como deue
+##### LEY III.
+- Quantas maneras son de gualardones
+##### LEY IIII.
+- Que los omes han de recebir gualardones sin perdidas que ayan fechas
+##### LEY V.
+- De los gualardones que a los omes fazen por las perdidas que resciben en las guerras
+##### LEY VI.
+- De los gualardones que son mas de razon
+##### LEY VII.
+- Que gualardon deuen auer los que por fuerça entrassen villa, o castillo, o otra fortaleza
+##### LEY VIII.
+- Que gualardon deuen auer los que furtan villas, o castillo de los enemigos
+##### LEY IX.
+- Que gualardon deuen auer los que entrassen por fuerça en los nauios de los enemigos
+##### LEY X.
+- En que manera deuen gualardonar por aluedrio los buenos fechos, que los omes fiziessen 
+#### TITULO XXVIII.
+- Como se deuen castigar e escarmentar todos los omes que andan en guerras, por los yerros que fizieren
+##### LEY I.
+- Que cosa es castigo, e escarmiento, e a que tiene pro, e por que razones se deue fazer guerra, e quien lo ha de fazer
+##### LEY II.
+- Que pena deuen auer los que diessen sabiduria a los enemigos, e se fuessen para ellos, e les ayudassen a fazer mal a los suyos
+##### LEY III.
+- Del los bienes que nascen del acabdillamiento: e que males quando non se faze como deue, e que cosas deuen fazer los cabdillos contra aquellos que se desmandaren
+##### LEY IIII.
+- Que pena deuen auer los que metieren desacuerdo en las compañas con quien vienen seyendo en la guerra
+##### LEY V.
+- Como deuen ser escarmentados los que boluieren entre los suyos pelea en tiempo de guerra de que nasciessen muertes, o feridas, o desonrras
+##### LEY VI.
+- Como deuen ser escarmentados los que furtan en tiempo de guerra a algunas cosas a sus compañeros
+##### LEY VII.
+- Como deuen ser escarmentados los que furtan, o roban a sus compañeros en tiempo de guerra
+##### LEY VIII.
+- Como deuen ser escarmentados, los que fizieren engaños, en las guerras
+##### LEY IX.
+- De como deuen ser escarmentados los que non guardan su vianda
+##### LEY X.
+- Que escarmiento deuen auer los que non ayudassen, o embargassen la justicia, en el tiempo de la guerra a los que la ouiessen de fazer
+##### LEY XI.
+- Como deuen ser escarmentados, los que non guardassen las posturas entre si, o con otros que anduuiessen en la guerra 
+#### TITULO XXIX.
+- De los captiuos e de las sus cosas, e de los lugares que caen captiuos, en poder de los enemigos
+##### LEY I.
+- Que quiere dezir captiuo, e que departimiento ay, entre preso, e captiuo
+##### LEY II.
+- Como deuen ser quitos los que yoguieren en captiuo
+##### LEY III.
+- Quales omes, son tenidos de sacar de de captiuo a los que yazen en el
+##### LEY IIII.
+- Como deuen ser guardados los bienes de los captiuos, e quien los deue guardar: e en que manera
+##### LEY V.
+- Por quales razones non se deuen perder por tiempo los bienes, e los derechos.
+- de los captiuos
+##### LEY VI.
+- Quales cosas non deuen valer, maguer las fagan los omes demientra que yoguieren en captiuo
+##### LEY VII: Que derechos han los fijos que nascen de los omes, demientra que yoguieren en captiuo, en los bienes de los padres
+##### LEY VIII.
+- Como e en que tiempo, pueden vsar los herederos, de los bienes de aquellos, que yoguieren en captiuo
+##### LEY IX.
+- Como aquellos que catiuan por su culpa, o por yerro, non deuen auer las franquezas, que los otros captiuos han
+##### LEY X.
+- Como los logares que ganan los enemigos si despues los cobran aquellos cuyos fueron, deuen ser tornados al primer estado
+##### LEY XI.
+- Que derecho han en los captiuos aquellos, que los fian e pagan algo per ellos
+##### LEY XII.
+- Por quales razones, los que sacan a otros de captiuo, non les deuen demandar lo que pagan por ellos 
+#### TITULO XXX.
+- De los alfaqueques, e de lo que estos han de fazer
+##### LEY I.
+- Que quiere dezir alfaqueques, e que cosas deuen auer estos en si
+##### LEY II.
+- Como deuen ser fechos, e escogidos los, alfaqueques, e que cosas deuen auer en si, e otrosi quien los puede fazer
+##### LEY III.
+- Que cosas deuen guardar los alfaqueques, despues que fueren fechos.
+- E que gualardon deuen auer, quando bien guardaren su oficio.
+- E que pena deuen auer: quando mal lo fizieren 
+#### TITULO XXXI.
+- De los estudios, en que se aprenden los saberes, e de los maestros: e de los escolares
+##### LEY I.
+- Que cosa es estudio, e quantas maneras son del, e por cuyo mandado deue ser fecho
+##### LEY II.
+- En que logar deue ser establescido el estudio, e como deuen ser seguros los maestros
+##### LEY III.
+- Quantos maestros deuien ser en el estudio general, e a que plazos deuen ser sus salarios, e de como deuen ser pagados
+##### LEY IIII.
+- En que manera deuen los maestros mostrar a los escolares los saberes
+##### LEY V.
+- En que logares deuen ser ordenadas las escuelas de los maestros, e de los escolares
+##### LEY VI.
+- Como los maestros, e los escolares pueden azer ayuntamiento, e hermandad entre si, e escoger vno que los castigue
+##### LEY VII.
+- Quales juezes deuen judgar a los escolares
+##### LEY VIII.
+- Que honrras señaladas deuen auer los maestros de las leyes
+##### LEY IX.
+- Como deuen prouar al escolar que quiere ser maestro ante que le otorguen licencia
+##### LEY X.
+- Como todos los escolares del estudio, ayan vn mensajero a que llaman bedel, e qual es su oficio
+##### LEY XI.
+- Como los estudios generales deuen auer estacionarios, que tengan tiendas de libros para exemplarios
 
 
 
