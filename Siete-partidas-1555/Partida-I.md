@@ -2,12 +2,7 @@
 
 [> Leer presentación](https://actio1680.github.io/proyecto2/sietepartidas)
 
-
->Créditos
-> 
-> [7PartidasDigital](https://7partidas.hypotheses.org/credits) (Edición crítica digital de las Siete Partidas: Las ediciones históricas) es el proyecto de edición de las Siete Partidas alfonsíes que se realiza desde la Universidad de Valladolid bajo la dirección de José Manuel Fradejas Rueda, catedrático de Filología Románica y financiado por el Ministerio de Ciencia, Innovación y Universidades con la referencia FFI2016-75014-P (2016-2020) y por la Agencia Estatal de Investigación con la referencia PID2020-112621GB-I00 (2020-2024). Dicha obra está protegida por la licencia [Creative Commons Reconocimiento-CompartirIgual 4.0 Internacional](http://creativecommons.org/licenses/by-sa/4.0/). 
-> 
-> El presente documento digital está basado integramente en la obra 7PartidasDigital, se ha editado con el fin de cumplir con los objetivos académicos del presente repositorio; y cumpliendo los requisitos establecidos por su licencia. 
+El presente documento digital está basado integramente en la obra [7PartidasDigital](https://7partidas.hypotheses.org/), se ha editado con el fin de cumplir con los objetivos académicos del presente repositorio; y en el respeto al cumplimiento de su licencia legal [Creative Commons Reconocimiento-CompartirIgual 4.0 Internacional](http://creativecommons.org/licenses/by-sa/4.0/). 
 
 
 ### DOCUMENTO DIGITAL[^1]
@@ -1074,8 +1069,7 @@ Moysen fue ome a quien amo mucho Dios, e por ende mandole primeramente en la ley
 ##### LEY XXVI.
 - De los que venden o compran los frutos de las heredades, ante que sean dezmados, a qual dellos deuen de demandar el diezmo
 
-#### TITULO XXI.
-- Del pegujar de los Clerigos
+#### TITULO XXI. Del pegujar de los Clerigos
 
 ##### LEY I.
 - Que cosa es pegujar, e donde tomo este nome
@@ -1094,8 +1088,10 @@ Moysen fue ome a quien amo mucho Dios, e por ende mandole primeramente en la ley
 ##### LEY VIII.
 - Del pegujar, que llaman, los clerigos profeticio, que pueden fazer del
 
-#### TITULO XXII.
-- De las procuraciones, e del censo, e de los pechos, que dan a las eglesias
+#### [TITULO XXII. De las procuraciones, e del censo, e de los pechos, que dan a las eglesias](https://7partidas.hypotheses.org/?p=4069)
+
+Egualdad, e mesura de uen auer, los perlados quando visitaren las Eglesias, e los monesterios, e los otros logares, que son de su visitacion, que no agrauien, a aquellos, que son tenudos, de visitar. Ca non deuen ser crueles, contra ellos, tomando les mayores procuraciones, nin echando les mayores pecho, de aquellos, que establescio santa Eglesia, e mando que tossen. E como quier, que los omes sean tenudos, cada vno, en sus logares, de les dar, estas cosas sobredichas, quado los visitaren, co todo ello guardar deuen, los perlados, que lo no resciban, dellos, con soberuia, mas mansamente, e con amor, non los agrauiado. E esto deuen fazer, tomando exemplo, de sant Pablo, q mas queria trabajar, de ganar por sus manos, de onde biuielle, quando predicaua, a las gentes, que non tomar, despesas dellas, de manera que se agrauiassen, e se escandalizassen porende. Onde pues que dicho es, en los titulos ante deste, de las Eglesias, e de los clerigos, qlas sirue, e delas rentas dellas, e otrosi de los monesterios, e de las otras casas de religion, las quales deue los perlados visitar, couiene de fablar en este titulo, de las procuraciones e de los tributos, e de los otros derechos, que les deuen dar, los clerigos, destos logares sobredichos, por razon de la visitacion, e del señorio, que han sobre ellos spiritualmete. E mostrar, que cosa es procuracion, e quales la deuen dar, e aquien. E porque razones, e en que manera. E que deuen fazer los perlados, queando visitaré. E otrosi, se muestra, en este titulo, que cosa es censo. E quien lo puede poner, e quando. E despues, que fuere puesto, si lo puede crecer, o menguar, o toller. E quales perlados, pueden poner pecho, en la eglesia, e porque razon. E en quantas maneras passan armas, de lo que deuen, en estas, cosas, sobrecichas, que han de fazzer. 
+
 
 ##### LEY I.
 - Que cosa es procuracion, e quien la deue dar, e a quien
@@ -1136,8 +1132,9 @@ Moysen fue ome a quien amo mucho Dios, e por ende mandole primeramente en la ley
 ##### LEY XIX.
 - De las sobejanias que fazen los perlados o los religiosos passando a mas de lo que deuen
 
-#### TITULO XXIII.
-- De la guarda de las fiestas, e de los ayunos, e de como se deuen fazer las limosnas
+#### [TITULO XXIII. De la guarda de las fiestas, e de los ayunos, e de como se deuen fazer las limosnas](https://7partidas.hypotheses.org/?p=4076)
+
+Trabajos e muy grandes martyrios sufrieron los sanctos por amor de nuestro Señor Iesu Christo, e esto fue fasta la muerte, que recibieron naturalmente segun juyzio del mundo, mas espiritualmente quan to a Dios non murieron: ante fue assi como nascimiento, ca assi como el niño es en tiniebla, mientra que esta encerrado en el vientre de su madre, e quando nasce vee la luz, assi los santos quando mueren salen de los trabajos deste mundo, que es cuyta e tiniebla, e veen a Dios que es luz verdadera e folgura perdurable, e por ende los que passan por tal muerte, non deuen contar que mueren, mas que nascen de nueuo e biuen vida folgada en paz. Ca assi lo dize la escriptura dellos, que quando las almas de los santos passan deste mundo al otro, que son en la mano de Dios, e non los tiene tormento de muerte: e maguer semeja a los ojos de los omes desentendidos que mueren, ellos son en paz. Onde pues que Dios les honrra, assi en este mundo, mostrando que los tiene por sus amigos, e faziendo muchos e marauillosos milagros por ellos, e en el otro los tiene consigo en el su santo reyno: derecho es que todos los omes los honrren e mayormente los Christianos, e esto deuen fazer por tres razones. La primera por agradescer a Dios que fizo tanta merced a los omes, que quiso que los buenos dellos fuessen santos. La segunda, agradesciendolo a ellos que lo merescieron ser. La tercera, porque rueguen a Dios, por nos que nos perdone los peccados [sic], e nos dexe fazer tales obras que merezcamos yr onde ellos son, e este gradescimiento se deue fazer honrrando las sus fiestas, e las eglesias, o yazen sus cuerpos, o que son fechas en nome dellos. E pues que en los titulos ante deste fablamos de las Eglesias, e de los clerigos que las siruen, conuiene dezir en este titulo de las fiestas de los santos, en cuyo nome son fechas. E mostrar primeramente, que quiere dezir fiesta. E quantas maneras son dellas. E como las deuen los Christianos honrrar. E guardar. E otrosi por quales razones deuen ayunar sus vigilias, e los otros ayunos, que son puetos por todo el mundo. E despues diremos de las limosnas, como las deuen fazer. E todas las cosas que deuen ser catadas en ellas, e por que en los dias de las fiestas, e de los ayunos, han mayor sabor los omes de las fazer, que en los otros dias.
 
 ##### LEY I.
 - Que quiere dezir fiesta, e quantas maneras son dellas
@@ -1166,8 +1163,9 @@ Moysen fue ome a quien amo mucho Dios, e por ende mandole primeramente en la ley
 ##### LEY XIII.
 - Que quien faze limosna deue auer ordenamiento
 
-#### TITULO XXIIII.
-- De los Romeros, e de los pelegrinos
+#### [TITULO XXIIII. De los Romeros, e de los pelegrinos](https://7partidas.hypotheses.org/?p=4080)
+
+Romeros, e pelegrinos son omes que fazen sus romerias e pelegrinajes, por seruir a Dios e honrrar los santos, e por sabor de fazer esto, estrañanse de sus logares, e de sus mugeres e de sus casas, e de todo lo que han, e van por tierras ajenas, lazerando los cuerpos, e despendiendo los aueres, buscando los santos. Onde los omes que con tan buena intencion, e atan santa, andan por el mundo, derecho es, que mientra en esto andouieren, que ellos e sus cosas sean guardados, de manera, que ninguno non se atreua de yr contra ellos, faziendoles mal. E por ende pues que en el titulo ante deste fablamos de los ayunos e de las fiestas de los santos, e de las limosnas, como se deuen fazer, queremos aqui dezir de los pelegrinos, e de los romeros que los van visitar, e honrrar. E mostrar primeramente, que quiere dezir Romero, o pelegrino. E quantas manera son dello. E en que forma deuen ser fechas las romerias. E como deuen ser honrrados e guardados por los logares por donde andouieren e llegaren, E que priuillejos han, andando en esto mas que los otros omes. E como pueden fazer sus mandas. E que debdo nasce entre ellos, yendo en vno en romeria. E que pena merescen los que les fizieren fuerça o tuerto, o demas: mientra en las romerias, o en los pelegrinajes andouieren.
 
 ##### LEY I.
 - Que quiere dezir Romero o pelegrino: e en quantas maneras son dellos
@@ -1183,4 +1181,4 @@ Moysen fue ome a quien amo mucho Dios, e por ende mandole primeramente en la ley
 
 ---
 
-[^1]: También se puede localizar el texto en formato PDF en Agencia Estatal Bolétin Oficial del Estado. (2011). Las Siete Partidas. [Enlace](https://www.boe.es/biblioteca_juridica/publicacion.php?id=PUB-LH-2011-60)
+[^1]: [7PartidasDigital](https://7partidas.hypotheses.org/credits) (Edición crítica digital de las Siete Partidas: Las ediciones históricas) es el proyecto de edición de las Siete Partidas alfonsíes que se realiza desde la Universidad de Valladolid bajo la dirección de José Manuel Fradejas Rueda, catedrático de Filología Románica y financiado por el Ministerio de Ciencia, Innovación y Universidades con la referencia FFI2016-75014-P (2016-2020) y por la Agencia Estatal de Investigación con la referencia PID2020-112621GB-I00 (2020-2024). Dicha obra está protegida por la licencia [Creative Commons Reconocimiento-CompartirIgual 4.0 Internacional](http://creativecommons.org/licenses/by-sa/4.0/). 
