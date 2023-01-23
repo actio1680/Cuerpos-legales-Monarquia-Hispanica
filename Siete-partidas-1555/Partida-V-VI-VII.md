@@ -34,8 +34,8 @@ El presente documento digital está basado integramente en la obra [7PartidasDig
 ##### LEY X.
 - Que fuerça ha el emprestamo, e que pena deue auer el que lo non tornare
 
-#### TITULO II.
-- del prestamo, a que dizen en latin Commodatum
+#### TITULO II. Del prestamo, a que dizen en latin Commodatum
+
 
 ##### LEY I.
 - Que cosa es prestamo, a que dizen en latin comodatum, e porque ha assi nome, e quien lo puede fazer, e a quien, e de que cosas
@@ -56,8 +56,8 @@ El presente documento digital está basado integramente en la obra [7PartidasDig
 ##### LEY IX.
 - Quando deue tornar el prestamo aquel Que lo rescibio e que pena deue auer si lo non fiziere
 
-#### TITULO III.
-- De los condessijos, a quel dizen en Latin depositum
+#### TITULO III. De los condessijos, a quel dizen en Latin depositum
+
 
 ##### LEY I.
 - que cosa en condessijo, aquien dizen en latin depositum, e onde tomo este nome, e quantas maneras son del
@@ -81,8 +81,8 @@ El presente documento digital está basado integramente en la obra [7PartidasDig
 ##### LEY X.
 - que las despensas que fueren fechas por razon del condessijo, deuen ser tornadas a aquel que las fize
 
-#### TITULO IIII.
-- de las donaçiones
+#### TITULO IIII. De las donaçiones
+
 
 ##### LEY I.
 - que cosa es donacion, e quien la puede fazer, e a quien, e de que cosas
@@ -108,8 +108,8 @@ El presente documento digital está basado integramente en la obra [7PartidasDig
 ##### LEY XI.
 - de las donaciones que fazen los omes seyendo enfermos: quales deuen valer, e quales non
 
-#### TITULO V.
-- De las vendidas, e de las compras
+#### TITULO V. De las vendidas, e de las compras
+
 
 ##### LEY I.
 - Que cosa es vendida
@@ -246,9 +246,8 @@ El presente documento digital está basado integramente en la obra [7PartidasDig
 ##### LEY LXVII.
 - Del comprador que empeña la cosa despues que la ha comprada que deue ser tornada a su dueño si se desfaze la vendida
 
-Titulo.
-- VI.
-- De los cambios que los omes fazen entre si: e que cosa es cambio
+#### TITULO VI. De los cambios que los omes fazen entre si: e que cosa es cambio
+
 
 ##### LEY I.
 - Que cosa es cambio e de que manera se faze
@@ -261,9 +260,7 @@ Titulo.
 ##### LEY V.
 - De los pleytos que son llamados en latin contractos innominatos que han semejança con el cambio
 
-Titulo.
-- VII.
-- De los mercadores, e de las ferias, e de los mercados, e quales son llamados mercadores, e del diezmo: e del portadgo que han a dar por razon dellas
+#### TITULO VII. De los mercadores, e de las ferias, e de los mercados, e quales son llamados mercadores, e del diezmo: e del portadgo que han a dar por razon dellas
 
 ##### LEY I.
 - De los omes que propiamente son llamados mercadores
@@ -284,9 +281,8 @@ Titulo.
 ##### LEY IX.
 - Que ningun ome non puede poner portadgo, ni concejo, ni iglesia en todo el señorio del Rey, sin su mandado
 
-Titulo.
-- VIII.
-- De los logueros, e de los arrendamientos
+#### TITULO VIII. De los logueros, e de los arrendamientos
+
 
 ##### LEY I.
 - Que cosa es loguero, e arrendamiento
@@ -314,7 +310,8 @@ Titulo.
 - Como los que tiñen la seda o cendales o paños por cosa sabida son tenudos de pechar el daño que ay viniere por su culpa
 ##### LEY XIII.
 - Como el que de afletada su naue a otro deue pechar el daño de las mercaderias, e de las otras cosas que se perdieren por su culpa
-##### LEY XIIII- Del ome que alquila a otro toneles o vasos malos, e quebrantados para meter y vino, o olio, o otra cosa semejante
+##### LEY XIIII
+- Del ome que alquila a otro toneles o vasos malos, e quebrantados para meter y vino, o olio, o otra cosa semejante
 ##### LEY XV.
 - De los pastores e de los otros omes que guardan ganados si resciben soldada dellos para guardarlos como pechen a los dueños dellos, los daños que les vinieren por su culpa
 ##### LEY XVI.
@@ -347,9 +344,8 @@ Titulo.
 ##### LEY XXIX.
 - Como aquel que tiene la cosa a censo si la ouiere a enagenar que la deue vender al Señor ante que a otro queriendo dar tanto precio por ella como da otro ome
 
-Titulo.
-- IX.
-- De los nauios e del precio dellos
+#### TITULO IX. De los nauios e del precio dellos
+
 
 ##### LEY I.
 - Que cosas son tenudos de guardar e de fazer los maestros de las naues, e los marineros a los mercaderos e a los otros que se fian en ellos
@@ -380,8 +376,7 @@ Titulo.
 ##### LEY XIIII.
 - Como los judgadores que son puestos en la ribera de la mar, deuen librar llanamente los pleytos que acaescieron entre los mercaderes
 
-#### TITULO X.
-- De las compañias que fazen los mercaderos, e los otros omes entre si para poder ganar algo mas de ligero ayuntando su auer en vno
+#### TITULO X. De las compañias que fazen los mercaderos, e los otros omes entre si para poder ganar algo mas de ligero ayuntando su auer en vno
 
 ##### LEY I.
 - Que cosa es compañia, e a que tiene pro, e como deue ser fecha: e quien la puede fazer
@@ -418,9 +413,7 @@ Titulo.
 ##### LEY XVII.
 - Como los bienes que los compañeros toman de la compañia son tenudos de los tornar a sus herederos
 
-Titulo.
-- XI.
-- De las promissiones, e pleytos que fazen los omes vnos con otros en razon de fazer, o de guardar, o de complir algunas cosas
+#### TITULO XI. De las promissiones, e pleytos que fazen los omes vnos con otros en razon de fazer, o de guardar, o de complir algunas cosas
 
 ##### LEY I.
 - Que cosa es promission, e a que tiene pro e en que manera se faze
@@ -503,8 +496,7 @@ Titulo.
 ##### LEY XL.
 - Como la pena que es puesta por razon de vsura non la pueden demandar
 
-#### TITULO XII.
-- De las fiaduras que los omes fazen entre si, por que las promissiones, e los otros pleytos, e las posturas que fazen sean mejor guardadas
+#### TITULO XII. De las fiaduras que los omes fazen entre si, por que las promissiones, e los otros pleytos, e las posturas que fazen sean mejor guardadas
 
 ##### LEY I.
 - Que quiere dezir fiadura, e a que tiene pro, e quien puede ser fiador, e quien non
@@ -581,8 +573,8 @@ Titulo.
 ##### LEY XXXVII.
 - Como se pueden cobrar, o non, las despensas que el padrastro, o otro ome fiziere, en aliñar las cosas del entenado, o de otro estraño teniendolo en su poder
 
-#### TITULO XIII.
-- De los peños que toman los omes muchas vegadas por ser mas seguros que les sea mas guardado, o pagado lo que les prometen de fazer o de dar
+#### TITULO XIII. De los peños que toman los omes muchas vegadas por ser mas seguros que les sea mas guardado, o pagado lo que les prometen de fazer o de dar
+
 
 ##### LEY I.
 - que cosa es peño, e quantas maneras son del
@@ -685,8 +677,7 @@ Titulo.
 ##### LEY L.
 - Como es tenudo o non el que vende el peño de fazerlo sano, al que lo compra
 
-#### TITULO XIIII.
-- De las pagas, e de los quitamientos a que dizen en latin compensacion, e de las debdas que se pagan a aquellos a quien las non deuen
+#### TITULO XIIII. De las pagas, e de los quitamientos a que dizen en latin compensacion, e de las debdas que se pagan a aquellos a quien las non deuen
 
 ##### LEY I.
 - Que quiere dezir paga, e quitamiento, e a que tiene pro
@@ -797,9 +788,8 @@ Ley ,XXIX.
 ##### LEY LIIII.
 - Como el que diesse algo por non ser descubierto lo puede despues demandar
 
-Titulo.
-- XV.
-- Como han los debdores a desampara sus bienes, quando non se atreuen a pagar, lo que deuen: e como deue ser reuocado el enagenamiento que los debdores fazen maliciosamente de sus bienes
+#### TITULO XV. Como han los debdores a desampara sus bienes, quando non se atreuen a pagar, lo que deuen: e como deue ser reuocado el enagenamiento que los debdores fazen maliciosamente de sus bienes
+
 
 ##### LEY I.
 - Que los debdores pueden desamparar sus bienes, quando non se atreuen a pagar lo que deuen, e ante quien, e en que manera
@@ -825,11 +815,13 @@ Titulo.
 - Como la cosa del debdor que es enagenada engañosamente deue ser tornada, con los frutos della
 ##### LEY XII.
 - Como deuen ser reuocados los quitamientos, que fazen los omes a sus debdores, maliciosamente
-### SEXTA PARTIDA
 
+### SEXTA PARTIDA
 Aqui comiença la Sexta partida deste libro: que fabla de los testamentos, e de las herencias
-#### TITULO I.
-- que cosa es testamento
+
+#### TITULO I. Que cosa es testamento
+
+
 ##### LEY I.
 - Que quiere dezir testamento, e a que tiene pro, e quantas maneras son del, e como deue ser fecho
 ##### LEY II.
@@ -895,8 +887,9 @@ Ley XXXI.
 - Como deuen ser puestos en recabdo los bienes de los romeros e de los peligrinos quando mueren sin manda
 ##### LEY XXXII.
 - Como son tenudos los apportellados de los logares de guardar e de amparar su derecho a los pelegrinos e a los romeros
-#### TITULO II.
-- De como deuen ser abiertos los testamentos que son fechos en escrito en poridad
+
+#### TITULO II. De como deuen ser abiertos los testamentos que son fechos en escrito en poridad
+
 
 ##### LEY I.
 - Quien puede demandar ante el juez que abran el testamento que es escrito en poridad
