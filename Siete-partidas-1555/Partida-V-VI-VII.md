@@ -10,7 +10,7 @@ El presente documento digital está basado integramente en la obra [7PartidasDig
 
 #### Prólogo
 
-####TITULO I. Que fabla de los emprestidos
+#### TITULO I. Que fabla de los emprestidos
 
 
 ##### LEY I.
