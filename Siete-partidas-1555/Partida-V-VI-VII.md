@@ -2239,42 +2239,79 @@ Ley primera, que cosa es furto
 - De las reglas del derecho
 
 Regla .j
+
 Regla .ij
+
 Regla .iij
+
 Regla .iiij
+
 Regla .v
+
 Regla .vj
+
 Regla .vij
+
 Regla .viij
+
 Regla .ix
+
 Regla .x
+
 Regla .xi
+
 Regla .xij
+
 Regla .xiij
+
 Regla .xiiij
+
 Regla .xv
+
 Regla .xvij
+
 Regla .xvij
+
 Regla .xviij
+
 Regla .xix
+
 Regla .xx
+
 Regla .xxj
+
 Regla .xxij
+
 Regla .xxiij
+
 Regla .xxiiij
+
 Regla .xxv
+
 Regla .xxvj
+
 Regla .xxvij
+
 Regla .xxviij
+
 Regla .xxix
+
 Regla .xxx
+
 Regla .xxxj
+
 Regla .xxxij
+
 Regla .xxxiij
+
 Regla .xxxiiij
+
 Regla .xxxv
+
 Regla .xxxvj
+
 Regla .xxxvij
+
 
 ---
 
