@@ -283,7 +283,6 @@ El presente documento digital está basado integramente en la obra [7PartidasDig
 
 #### TITULO VIII. De los logueros, e de los arrendamientos
 
-
 ##### LEY I.
 - Que cosa es loguero, e arrendamiento
 ##### LEY II.
@@ -345,7 +344,6 @@ El presente documento digital está basado integramente en la obra [7PartidasDig
 - Como aquel que tiene la cosa a censo si la ouiere a enagenar que la deue vender al Señor ante que a otro queriendo dar tanto precio por ella como da otro ome
 
 #### TITULO IX. De los nauios e del precio dellos
-
 
 ##### LEY I.
 - Que cosas son tenudos de guardar e de fazer los maestros de las naues, e los marineros a los mercaderos e a los otros que se fian en ellos
@@ -577,8 +575,9 @@ El presente documento digital está basado integramente en la obra [7PartidasDig
 
 
 ##### LEY I.
-- que cosa es peño, e quantas maneras son del
-##### LEY Que cosas pueden ser dadas en peños
+- Que cosa es peño, e quantas maneras son del
+##### LEY II.
+- Que cosas pueden ser dadas en peños
 ##### LEY III.
 - Quales cosas non deuen nin pueden ser dadas en peños
 ##### LEY IIII.
